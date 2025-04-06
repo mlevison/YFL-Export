@@ -1,6 +1,6 @@
 ![Thank you](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Thank-you-scaled-qdc6ctku5dolaphy3e3x8c2t0aeflqn79oqrfq5jm0.jpg "Thank you")
 
-[![Thank you](http://yflmainprod.wpengine.com/wp-content/uploads/2013/04/Thank-you-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2013/04/Thank-you.jpg)When someone wants to do something nice for you or give you something, do you ever find yourself arguing with them or politely turning them down? Do you ever say, “No, it’s OK, I’m fine. Thanks anyway.” If you have ever done that, this message is for you.
+[![Thank you](attachments/Thank-you-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2013/04/Thank-you.jpg)When someone wants to do something nice for you or give you something, do you ever find yourself arguing with them or politely turning them down? Do you ever say, “No, it’s OK, I’m fine. Thanks anyway.” If you have ever done that, this message is for you.
 
 Easter Sunday marked the one year anniversary of my blog and book project. Last March I finally listened to the inner voice that had been bugging me for ten years to start sharing all the lessons I have learned since the death of my first husband. For years now my husband Mark has also been encouraging me to start a blog. Four or five years ago he bought me a book entitled “Clear blogging” using the first proceeds from his own blog. I thanked him for the thoughtful gesture and placed the book on my office shelf where it sat untouched until last year. OK, I’m a slowly learner.
 

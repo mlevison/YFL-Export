@@ -168,7 +168,7 @@ In the meantime, have fun with this and let me know how much you save!
 
 I look forward to hearing your stories.
 
-[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make smart, savvy financial decisions that are in your highest, best interests *every time*?**
 

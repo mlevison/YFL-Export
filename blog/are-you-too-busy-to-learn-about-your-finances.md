@@ -1,8 +1,8 @@
-![pink clock](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/pink-clock-1500019-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
+![pink clock](attachments/pink-clock-1500019-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
 “My daughter needs [your book](https://www.amazon.ca/Protect-Your-Purse-Financial-Bankruptcies-ebook/dp/B071V8WPBW/ref=sr_1_1?ie=UTF8&qid=1501007407&sr=8-1&keywords=protect+your+purse) but I know she won’t read it.”
 
-So began a conversation with three women and one man seated at my table at a recent investing event. We were discussing my recommendation that women become fully involved in all aspects of ![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/06/pink-clock-1500019-300x225.jpg)their family’s financial life, including investing.
+So began a conversation with three women and one man seated at my table at a recent investing event. We were discussing my recommendation that women become fully involved in all aspects of ![](attachments/pink-clock-1500019-300x225.jpg)their family’s financial life, including investing.
 
 “Why’s that?” I inquired of the woman who’d made the comment.
 

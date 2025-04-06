@@ -183,12 +183,12 @@ Here are a couple of comments in response to the CBC article that sum it up nice
 
 This from a man:
 
-| ![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/7U48w1RTopTkRMmHaNFfFa) |
+| ![](attachments/7U48w1RTopTkRMmHaNFfFa.jpg) |
 | --- |
 
 This from a woman:
 
-| ![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/bWkJsuYnBp6A6Z4PHXzjak) |
+| ![](attachments/bWkJsuYnBp6A6Z4PHXzjak.jpg) |
 | --- |
 
 ## Stop justifying

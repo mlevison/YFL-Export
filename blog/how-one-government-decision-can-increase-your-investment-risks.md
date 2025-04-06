@@ -1,6 +1,6 @@
 ![Ottawa Water and Sewer Agreement](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Ottawa-Water-and-Sewer-Agreement-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "ottawa-water-and-sewer-agreement")
 
-![ottawa-water-and-sewer-agreement](http://yflmainprod.wpengine.com/wp-content/uploads/2016/12/Ottawa-Water-and-Sewer-Agreement-251x300.jpg)If you are the kind of person who shrugs with boredom whenever governments send you an update on policy changes, you might want to take a closer look the next time one lands in your mailbox.
+![ottawa-water-and-sewer-agreement](attachments/Ottawa-Water-and-Sewer-Agreement-251x300.jpg)If you are the kind of person who shrugs with boredom whenever governments send you an update on policy changes, you might want to take a closer look the next time one lands in your mailbox.
 
 Earlier this month, I received a notice from the City of Ottawa that has the following headline: Water Billing Options for Landlords and Tenants. I assumed that if the City is reaching out to us, it’s not because they decided to increase the number of options we have available. I was right. There are big changes afoot when it comes to water and sewer billing in the City of Ottawa, and they will have an impact on real estate investors.
 

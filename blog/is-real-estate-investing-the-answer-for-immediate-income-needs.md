@@ -1,6 +1,6 @@
 ![Divorce](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Divorce-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Divorce")
 
-[![Divorce](http://yflmainprod.wpengine.com/wp-content/uploads/2015/02/Divorce-300x168.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/02/Divorce.jpg)Someone (let’s call her Rachel) reached out to me to ask the following question: What’s the fastest way to increase my income in order to ensure that I can qualify for the mortgage to buy out my ex-husband’s share of the house when we finalize our divorce? Is real estate investing a good option?
+[![Divorce](attachments/Divorce-300x168.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/02/Divorce.jpg)Someone (let’s call her Rachel) reached out to me to ask the following question: What’s the fastest way to increase my income in order to ensure that I can qualify for the mortgage to buy out my ex-husband’s share of the house when we finalize our divorce? Is real estate investing a good option?
 
 Rachel wants to remain in the house in order to minimize the disruption for the kids, however her income has been severely reduced for a variety of reasons and she needs to explore options. What should she do?
 
@@ -24,7 +24,7 @@ Let’s look at the example above: Even if you pick a great property in a great 
 
 ### Whopping assumptions about great tenants
 
-[![Rental property](http://yflmainprod.wpengine.com/wp-content/uploads/2015/02/Rental-property-283x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/02/Rental-property.jpg)Talk to anyone who has investment properties (note the use of the plural here) and **[ask them about tenants](https://yflmainprod.wpengine.com/2014/08/my-worst-real-estate-mistake/)**. There is damage, stress and headaches. Dealing with tenants is rarely a walk in the park.
+[![Rental property](attachments/Rental-property-283x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/02/Rental-property.jpg)Talk to anyone who has investment properties (note the use of the plural here) and **[ask them about tenants](https://yflmainprod.wpengine.com/2014/08/my-worst-real-estate-mistake/)**. There is damage, stress and headaches. Dealing with tenants is rarely a walk in the park.
 
 One of my former investors on a Rent to Own deal has another property, which he has had for several years now. In all of that time, he has only had one tenant and this person always pays the rent on time. He thinks this is the norm; select good people and you won’t have any problems.
 

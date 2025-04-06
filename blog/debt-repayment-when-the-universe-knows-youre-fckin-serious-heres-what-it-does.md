@@ -1,6 +1,6 @@
 ![You Got This written in chalk on pavement](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/sydney-rae-408416-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "sydney-rae-408416-unsplash")
 
-At a recent Women’s Money Group meeting, I tackled the subject of retirement. What do you need to do to ensure you’ll be ready? How much money will you need? How do you calculate that? What factors are important? How do you handle planning if you’re![Woman biting pencil while looking at computer screen](http://yflmainprod.wpengine.com/wp-content/uploads/2019/05/frustration-jeshoots-com-523925-unsplash-300x200.jpg) also in the middle of **[debt repayment](https://yflmainprod.wpengine.com/2017/02/are-you-really-living-within-your-means/)**? And so on.
+At a recent Women’s Money Group meeting, I tackled the subject of retirement. What do you need to do to ensure you’ll be ready? How much money will you need? How do you calculate that? What factors are important? How do you handle planning if you’re![Woman biting pencil while looking at computer screen](attachments/frustration-jeshoots-com-523925-unsplash-300x200.jpg) also in the middle of **[debt repayment](https://yflmainprod.wpengine.com/2017/02/are-you-really-living-within-your-means/)**? And so on.
 
 At the end of the meeting, one of the attendees approached me and said (and I quote): “I’m f\*\*ked.” The next day, several people reached out via email to share their worries about the future. The stress was palpable.
 

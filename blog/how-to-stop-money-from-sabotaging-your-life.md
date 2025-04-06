@@ -1,6 +1,6 @@
 ![Marilynn smiling with array of tools](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Marilynn-smiling-with-array-of-tools-qdc6csmzyjnaz3jb8vpanubcewj2e1jgxk39yg6xs8.jpg "Marilynn smiling with array of tools")
 
-![Marilynn driving drill into her ear](http://yflmainprod.wpengine.com/wp-content/uploads/2015/11/Marilynn-driving-drill-into-her-ear-e1447953191230-225x300.jpg)Roughly one year ago my friend Sandra and I had a bright idea: Let’s create a private forum where women can talk about money. Lord knows we all need to learn more about how it works and since we sometimes feel like morons discussing it around men, why not create a space for women only? It would be a safe, supportive environment where women can ask questions, share concerns and help each other out on any topic related to money and financial literacy.
+![Marilynn driving drill into her ear](attachments/Marilynn-driving-drill-into-her-ear-e1447953191230-225x300.jpg)Roughly one year ago my friend Sandra and I had a bright idea: Let’s create a private forum where women can talk about money. Lord knows we all need to learn more about how it works and since we sometimes feel like morons discussing it around men, why not create a space for women only? It would be a safe, supportive environment where women can ask questions, share concerns and help each other out on any topic related to money and financial literacy.
 
 There was just one problem – it turns out that women don’t want to talk about money. At all. It’s not that they don’t think about it and it certainly isn’t that they don’t worry about it, they just don’t want to discuss anything out in the open. The only people we heard from were women who were already involved in the financial industry. Everyone else? Radio silence, even though heaps of women asked us to sign them up immediately.
 
@@ -22,7 +22,7 @@ It’s not the hammer’s fault when you whack your thumb or dent the wall with 
 
 ## Marilynn The Tool Lady
 
-Meet my lovely friend Marilynn. She’s the one to whom I refer in my blog post [The importance of girl time](https://yflmainprod.wpengine.com/2013/04/the-importance-of-girl-time/) where I talk about laughing so hard that we made the artwork fall off the wall. I have known her![Marilynn smiling with array of tools](http://yflmainprod.wpengine.com/wp-content/uploads/2015/11/Marilynn-smiling-with-array-of-tools-300x225.jpg) for more than twenty years and in that time I’ve always thought of her as The Tool Lady. Check out a small smattering of her tools. Trust me, there are many, many more in the bits of her shop that you don’t see.
+Meet my lovely friend Marilynn. She’s the one to whom I refer in my blog post [The importance of girl time](https://yflmainprod.wpengine.com/2013/04/the-importance-of-girl-time/) where I talk about laughing so hard that we made the artwork fall off the wall. I have known her![Marilynn smiling with array of tools](attachments/Marilynn-smiling-with-array-of-tools-300x225.jpg) for more than twenty years and in that time I’ve always thought of her as The Tool Lady. Check out a small smattering of her tools. Trust me, there are many, many more in the bits of her shop that you don’t see.
 
 If you heard Marilynn at a party waxing poetic about the new table saw she just got her hands on (and trust me, she LOVES that thing), you wouldn’t think “How vulgar.” It’s a table saw, she’s passionate about it, good for her. It’s not your thing but she’s clearly very pleased about it so you would doubtless feel happy for her.
 
@@ -44,7 +44,7 @@ It’s a state that helps you to survive the crap that the world throws at you.
 
 And it’s also a state that allows you to make a significant difference in the lives of the people, agencies and charities that matter to you.
 
-What do I mean by wealth? That’s for you to define, and whatever you choose is perfect for you.![Marilynn sawing](http://yflmainprod.wpengine.com/wp-content/uploads/2015/11/Marilynn-sawing-300x224.jpg)
+What do I mean by wealth? That’s for you to define, and whatever you choose is perfect for you.![Marilynn sawing](attachments/Marilynn-sawing-300x224.jpg)
 
 So the next time that you find yourself in the grip of emotion involving the topic of money, take a step back and visualize yourself with one of Marilynn’s tools in your hand. If you can muster up the same emotion about Marilynn’s tool that you feel about money – for example, “I feel really stupid that I don’t know how to use this table saw. Marilynn knows how to do it, why don’t I? I must be stupid.” – then go ahead and allow yourself to feel the same emotion about money. But chances are you won’t give a damn about the table saw, so ditch the emotion around money and stop beating yourself up.
 

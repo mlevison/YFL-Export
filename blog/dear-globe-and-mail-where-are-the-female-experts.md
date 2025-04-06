@@ -1,6 +1,6 @@
 ![Invest Like a Legend](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Invest-Like-a-Legend2-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Invest Like a Legend2")
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/04/Invest-Like-a-Legend2-225x300.jpg)Twenty minutes into the weekend edition of The Globe and Mail, I was seriously pissed off.
+![](attachments/Invest-Like-a-Legend2-225x300.jpg)Twenty minutes into the weekend edition of The Globe and Mail, I was seriously pissed off.
 
 As I made my way through the A-section, I came across an ad for a Globe Talks event that, at first blush, looked promising: Invest Like a Legend. Well, who wouldn’t want to do that? As an advocate of women’s financial literacy, I was pumped – sign me up and let’s get at it. Even though I read, write and speak about this stuff most days, I am always eager to learn more from experienced people. I was even prepared to make the five-hour trek from Ottawa to the centre of the universe to attend.
 

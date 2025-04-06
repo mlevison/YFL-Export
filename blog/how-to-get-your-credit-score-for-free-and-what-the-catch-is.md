@@ -1,6 +1,6 @@
 ![Free game tiles](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/free-game-tiles-1557509-1279x960-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Word “free” in Scrabble tiles")
 
-![Free game tiles](http://yflmainprod.wpengine.com/wp-content/uploads/2018/05/free-game-tiles-1557509-1279x960-300x225.jpg)A venture capitalist, doubling as a professor during a week of mini university for high school students, told my daughter the following: When you get something for free, *you* are the product. They were looking into free apps and how companies make money when they give their products away for free. There’s always a catch.
+![Free game tiles](attachments/free-game-tiles-1557509-1279x960-300x225.jpg)A venture capitalist, doubling as a professor during a week of mini university for high school students, told my daughter the following: When you get something for free, *you* are the product. They were looking into free apps and how companies make money when they give their products away for free. There’s always a catch.
 
 In the last few years, several companies have come into the market to offer consumers free access to their credit scores instead of paying the credit reporting agencies for them. It may be worth it for you to consider one of the free options available in Canada at the moment, provided you understand the trade-offs.
 
@@ -39,7 +39,7 @@ This company takes a different approach to Credit Karma. For starters, it’s a 
 
 One of the things that struck me about Borrowell was their seemingly helpful offer to make recommendations based on my profile. According to them, my score is 849. Given that the highest score possible is 900, that’s a really good score. I never run a balance on my credit cards and I’ve been paying down my investment property mortgages ahead of schedule. If you were a financial company, what kind of product or ads would you show me? Maybe something about investments? High interest savings accounts? Instead, this is what I got from Borrowell:
 
-![Borrowell loan offer](http://yflmainprod.wpengine.com/wp-content/uploads/2018/05/Borrowell-recommendation-for-me-May-2018-1024x476.png)
+![Borrowell loan offer](attachments/Borrowell-recommendation-for-me-May-2018-1024x476.png)
 
 Based on no evidence of need, I’m told I have a high likelihood of being approved for a loan of $1,000 to $35,000 (!!) in less than two minutes.
 

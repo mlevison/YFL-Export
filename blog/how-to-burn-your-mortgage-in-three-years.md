@@ -1,6 +1,6 @@
 ![Burn Your Mortgage book cover](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Burn-Your-Mortgage-book-cover-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.png "Burn Your Mortgage book cover")
 
-No, that’s not a typo – I do mean three years. And that’s precisely what Sean Cooper did: He bought a house in the Greater Toronto Area at the age of 27, and by the time he was 30, it was paid ![Burn Your Mortgage book cover](http://yflmainprod.wpengine.com/wp-content/uploads/2017/03/Burn-Your-Mortgage-book-cover-212x300.png)in full and he was lighting a match to the mortgage documents.
+No, that’s not a typo – I do mean three years. And that’s precisely what Sean Cooper did: He bought a house in the Greater Toronto Area at the age of 27, and by the time he was 30, it was paid ![Burn Your Mortgage book cover](attachments/Burn-Your-Mortgage-book-cover-212x300.png)in full and he was lighting a match to the mortgage documents.
 
 In addition to sharing his experience in his new book, *Burn Your Mortgage, The Simple, Powerful Path to Financial Freedom for Canadians, Sean* tackles all of the steps involved in purchasing a house: from saving for the down payment, finding a place, putting in an offer, getting financing, to closing the deal. Throughout, he gives a pile of creative tips on how to pay off your mortgage quickly.
 

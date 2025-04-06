@@ -66,7 +66,7 @@ His point is that **if you focus on buying cash-producing assets, you will have 
 
 He took this to an extreme when he was looking to buy a very nice car for himself. Rather than simply spend cash to buy a car (i.e. a liability), he told himself that he would use that money to invest in a business and he’d buy the car when the business produced enough positive cash flow to cover the cost. Now that’s discipline!
 
-[![911 Carrera spec sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/2015/05/911-Carrera-spec-sheet1-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/911-Carrera-spec-sheet1.jpg)Beautiful cars like the ones I test-drove don’t come cheaply.
+[![911 Carrera spec sheet](attachments/911-Carrera-spec-sheet1-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/911-Carrera-spec-sheet1.jpg)Beautiful cars like the ones I test-drove don’t come cheaply.
 
 The recommended base prices of the models I drove ranged from $83,000 to $137,000. Are they worth it? That depends.
 
@@ -91,7 +91,7 @@ I’ve already told my husband that my next car will not be a sensible car. It w
 
 First though, I have many more assets to buy to produce positive cash flow.
 
-[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make savvy financial decisions that are in your highest, best interests *every time*?**
 

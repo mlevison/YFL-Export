@@ -95,7 +95,7 @@ I’ve updated that spreadsheet and added the two biggest banks in Canada for th
 
 Here’s how their respective offerings stack up now:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/01/EQ-Bank-Card-article-pic-2.png)
+ ![](attachments/EQ-Bank-Card-article-pic-2.png)
 
 I’m not going to mention the Big 6 banks beyond this point because a) they charge for their chequing accounts, which is unacceptable in today’s world; and b) their interest rates are ridiculously low.
 
@@ -183,7 +183,7 @@ They offer **no value** that I can see and in fact, they ***cost* you** money.
 
 Consider the online options I’ve discussed above and choose accounts that will serve you well.
 
-[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make smart financial decisions that are in your highest, best interests *every time*?**
 

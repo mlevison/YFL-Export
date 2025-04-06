@@ -1,6 +1,6 @@
 ![I can do it](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/I-can-do-it-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "i-can-do-it")
 
-My daughter took me to task this week when she saw my proposed title for this blog post on a scrap of paper.![i-can-do-it](http://yflmainprod.wpengine.com/wp-content/uploads/2017/01/I-can-do-it-300x190.jpg)
+My daughter took me to task this week when she saw my proposed title for this blog post on a scrap of paper.![i-can-do-it](attachments/I-can-do-it-300x190.jpg)
 
 “What’s this?” she asked. “You’re always telling me to to act with more confidence, and now you’re going to tell women that it’s OK not be confident?” she asked, incredulous.
 

@@ -1,6 +1,6 @@
 ![Chalk board with three lines for rules](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-808471534-for-blog-post-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Chalk board with rules writen")
 
-Remember when you were growing up and life seemed to be full of rules? Take off your shoes before coming into the house. Don’t speak with your mouth full. Don’t use your brother as a stepping stool (at least not when mom ![Chalk board with three lines for rules](http://yflmainprod.wpengine.com/wp-content/uploads/2019/01/iStock-808471534-for-blog-post.jpg)is around). Look twice before crossing the road. Finish your vegetables before having dessert. Be home before midnight.
+Remember when you were growing up and life seemed to be full of rules? Take off your shoes before coming into the house. Don’t speak with your mouth full. Don’t use your brother as a stepping stool (at least not when mom ![Chalk board with three lines for rules](attachments/iStock-808471534-for-blog-post.jpg)is around). Look twice before crossing the road. Finish your vegetables before having dessert. Be home before midnight.
 
 Most of the rules made sense – well, except the bit about your brother. Mine made an excellent “assistant”.
 
@@ -45,7 +45,7 @@ In each case, the results mirrored the people’s resolve. The first two familie
 
 ## The “Values First” Rule
 
-Have you noticed that money without a purpose disappears with ![unhappy Asian woman holding wallet with money flying out of it, overspending concept](http://yflmainprod.wpengine.com/wp-content/uploads/2019/01/iStock-916397168-for-blog-post-300x200.jpg)alarming speed? It seems to evaporate in no time, lost in the netherworld of dinners out, drinks with friends, weekends away, and great deals that couldn’t be passed up.
+Have you noticed that money without a purpose disappears with ![unhappy Asian woman holding wallet with money flying out of it, overspending concept](attachments/iStock-916397168-for-blog-post-300x200.jpg)alarming speed? It seems to evaporate in no time, lost in the netherworld of dinners out, drinks with friends, weekends away, and great deals that couldn’t be passed up.
 
 On the other hand, money with a purpose helps you accomplish your goals.
 

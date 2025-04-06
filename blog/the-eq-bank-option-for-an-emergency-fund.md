@@ -60,7 +60,7 @@ Food for thought. I’ll dive more deeply into this when I write a post on TFSA�
 
 EQ Bank also announced that they’re offering GICs inside the TFSA. Here’s what they provided as a list of rates (effective in December 2020):
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/12/EQ-Bank-GIC-300x259.png)
+![](attachments/EQ-Bank-GIC-300x259.png)
 
 I honestly don’t get why anyone would be interested in a GIC inside the TFSA given the rates posted above. Here’s the scoop:
 

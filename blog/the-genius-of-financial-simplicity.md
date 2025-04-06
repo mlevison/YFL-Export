@@ -1,6 +1,6 @@
 ![Mark tool chest labels](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Mark-tool-chest-labels-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Mark tool chest labels")
 
-![Mark tool chest labels](http://yflmainprod.wpengine.com/wp-content/uploads/2016/03/Mark-tool-chest-labels-225x300.jpg)When Mark and I moved in together after buying our first house, it became apparent that we would need to purge. Do we keep his sofa or mine? (Both at first, but then I sold his to a neighbour during a garage sale. He discovered this when he was asked to help move it to her house, but that’s another story.)
+![Mark tool chest labels](attachments/Mark-tool-chest-labels-225x300.jpg)When Mark and I moved in together after buying our first house, it became apparent that we would need to purge. Do we keep his sofa or mine? (Both at first, but then I sold his to a neighbour during a garage sale. He discovered this when he was asked to help move it to her house, but that’s another story.)
 
 There were many duplicate items except in two key areas: wine and tools.
 
@@ -40,7 +40,7 @@ For a couple of years now I have been teaching people how to master what I call 
 There is a heap of tools to help you with each key area – books, blogs, free spreadsheets, expense trackers, calculators – so failure to progress cannot be blamed on a lack of resources. They’re out there. The trick is to find a simple system that you will stick to and keep implementing without making excuses.
 
 If cash flow is your issue, track every dime spent for two months, then break the expenditures down into categories. Write them down on a piece of paper, use a spreadsheet or download an app, it  
-really doesn’t matter as long as you do it in order to get a grip on where your money is going. Once you’ve broken down your expenditures, make (or download) ![Plan](http://yflmainprod.wpengine.com/wp-content/uploads/2016/03/Plan-232x300.jpg)a very simple budgeting tool and allocate essential costs first (i.e. rent/mortgage, food you make at home (NOT meals out), utilities, medical costs); then corrosive debt (e.g. credit card balances); then savings/investments; and finally discretionary spending. See if you can cut back on spending by trimming back big items – look for the big wins, not the nickel-and-dime stuff.
+really doesn’t matter as long as you do it in order to get a grip on where your money is going. Once you’ve broken down your expenditures, make (or download) ![Plan](attachments/Plan-232x300.jpg)a very simple budgeting tool and allocate essential costs first (i.e. rent/mortgage, food you make at home (NOT meals out), utilities, medical costs); then corrosive debt (e.g. credit card balances); then savings/investments; and finally discretionary spending. See if you can cut back on spending by trimming back big items – look for the big wins, not the nickel-and-dime stuff.
 
 If investing is the problem – as in you’re intimidated by it and just don’t know where to start so you haven’t started at all – then read Tony Robbins’ book *Money, Master The Game* and start with simple, low-fee index funds. You can branch out as you learn more and become more comfortable.
 

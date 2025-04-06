@@ -1,6 +1,6 @@
 ![Money and plant with hand](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-515738556-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "Money and plant with hand")
 
-Have you ever experienced a truly life-changing moment? ![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/02/iStock-515738556-300x200.jpg)
+Have you ever experienced a truly life-changing moment? ![](attachments/iStock-515738556-300x200.jpg)
 
 If so, what was it?
 
@@ -76,7 +76,7 @@ Thousands of dollars in repairs later, we sold the place. We made roughly $25,00
 
 ## Should you invest in real estate?
 
-This gets a “hell, yes!” from me even after everything I’ve been through – and you’ve only heard about one of my many mistakes!![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/02/iStock-521405017-300x200.jpg)
+This gets a “hell, yes!” from me even after everything I’ve been through – and you’ve only heard about one of my many mistakes!![](attachments/iStock-521405017-300x200.jpg)
 
 Here’s the other side of my experience, though:
 

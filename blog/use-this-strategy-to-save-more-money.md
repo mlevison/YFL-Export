@@ -196,7 +196,7 @@ Doris
 
 PS If you read this and you thought, “I’m good. I don’t have a problem saving money. I don’t need to do this.” – I have one question for you: Do you want to have *more money* to fund the things that matter most to you? If so, give the Big 3 Audit a go. Every time I do this with my own finances, I find savings. I bet you will, too.
 
-[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make smart, savvy financial decisions that are in your highest, best interests *every time*?**
 

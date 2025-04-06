@@ -1,6 +1,6 @@
 ![engagement](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/engagement-1313444-640x480-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "engagement-1313444-640×480")
 
-![engagement-1313444-640x480](http://yflmainprod.wpengine.com/wp-content/uploads/2016/12/engagement-1313444-640x480-300x225.jpg)Are you noticing the number of ads for diamond rings in the papers at the moment? ‘Tis apparently the season for proposals.
+![engagement-1313444-640x480](attachments/engagement-1313444-640x480-300x225.jpg)Are you noticing the number of ads for diamond rings in the papers at the moment? ‘Tis apparently the season for proposals.
 
 I have a message for those considering marriage: talk about money.
 

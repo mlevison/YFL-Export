@@ -1,6 +1,6 @@
 ![John De Goey book](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/John-De-Goey-book-2-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "John De Goey book 2")
 
-Over the last year, I have been on a mission to interview as many financial advisors as possible, to get a sense of the range of approaches available. I know what the literature ![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/04/John-De-Goey-book-2-188x300.jpg)tells me is out there, but I wanted to experience it myself. My aim is to help break down the barriers to investing for women and grow their confidence, while also growing their money in a way that best serves their goals. Hence the many cups of coffee with advisors.
+Over the last year, I have been on a mission to interview as many financial advisors as possible, to get a sense of the range of approaches available. I know what the literature ![](attachments/John-De-Goey-book-2-188x300.jpg)tells me is out there, but I wanted to experience it myself. My aim is to help break down the barriers to investing for women and grow their confidence, while also growing their money in a way that best serves their goals. Hence the many cups of coffee with advisors.
 
 One sentence that keeps coming up with unnerving frequency is this one: “I deserve to be paid for my services.”
 

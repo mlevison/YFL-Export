@@ -37,7 +37,7 @@ I’m going to consider the top four in Canada: EQ Bank, WealthSimple, Simplii F
 
 Here’s an overview of what each offers:
 
-| ![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/2msp1dTDMjWKovwdEkQaw5/email) |
+| ![](attachments/email.jpg) |
 | --- |
 
 **Simplii and Tangerine**
@@ -58,7 +58,7 @@ What I don’t like about Tangerine, in addition to their terrible interest rate
 
 You put in your username, and then they ask you for this:
 
-| ![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/6i2gFRhbC6ieQqSETUCrCm/email) |
+| ![](attachments/email-1.jpg) |
 | --- |
 
 A 4 to 6 digit banking PIN is wholly inadequate at a time when the [recommended length for a secure password](https://preview.convertkit-mail2.com/click/dpheh0hzhm/aHR0cHM6Ly9ibG9nLjFwYXNzd29yZC5jb20vaG93LWxvbmctc2hvdWxkLW15LXBhc3N3b3Jkcy1iZS8=) is at least 16 characters.
@@ -180,7 +180,7 @@ I hope this helps you to reevaluate your banking needs and choices. Whatever you
 
 #### Set up a free Discovery Call. We’ll go over where you’re at, the challenges you face, and how to get you on the path to achieving your financial goals.
 
-[![Cheat Sheet Cover](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Cheat-Sheet-Cover-qxfy4b0071fm4zpqv2l5vigjxm977b23egkfira6hc.png "Cheat Sheet Cover")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Cheat Sheet Cover](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Cheat-Sheet-Cover-qxfy4b0071fm4zpqv2l5vigjxm977b23egkfira6hc.png "Cheat Sheet Cover")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make smart financial decisions that are in your highest, best interests *every time*?**
 

@@ -8,13 +8,13 @@ The same thing happened in the various financial forums I participate in.
 
 Here’s part of the email from EQ Bank that started the verbal firestorm:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/04/Rate-reduction-announcement.png)
+ ![](attachments/Rate-reduction-announcement.png)
 
 Not great news for sure.
 
 You know it’s not going to end well when they start with this subject line:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/04/Subject-line.png)
+ ![](attachments/Subject-line.png)
 
 Their “update” was the drop in rates and the “high earnings” are temporary.
 

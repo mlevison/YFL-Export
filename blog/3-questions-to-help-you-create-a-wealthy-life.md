@@ -168,19 +168,19 @@ I realized that for me, it’s about time freedom, optimal health, exceptional e
 
 In my Wealthy Life, I can go **cross country skiing in the middle of a work day** because the conditions are perfect and I feel like going – like I did last week:
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/01/2023-01-22-14.56.18-225x300.jpg)
+![](attachments/2023-01-22-14.56.18-225x300.jpg)
 
 Or travel to Europe for three weeks with my family in the summer of 2017 …
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/01/7200300-225x300.jpg)
+![](attachments/7200300-225x300.jpg)
 
 Then pop over to Australia with them for three weeks in the winter that same year:
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/01/1030649-300x225.jpg)
+![](attachments/1030649-300x225.jpg)
 
 Or grab a drink at my hotel’s rooftop bar in Barcelona after a day of hiking, like we did this past summer:
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/01/2022-06-20-17.42.37-225x300.jpg)
+![](attachments/2022-06-20-17.42.37-225x300.jpg)
 
 **These are the sorts of things that make me feel wealthy – having control over my time, spending quality time with people I love, and having remarkable experiences along the way.**
 
@@ -246,7 +246,7 @@ Doris ❤️
 
 \*\*\* We pay off our credit card bills in full every month. We never carry a balance. If you have credit card debt, do not use rewards cards. The interest payments you make on your balance wipe out any benefit from the program – and then some! Credit card debt is a major liability and needs to be wiped out asap. Please focus on that first before trying to get clever about a rewards system.
 
-[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make smart, savvy financial decisions that are in your highest, best interests *every time*?**
 

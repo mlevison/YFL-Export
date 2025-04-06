@@ -1,6 +1,6 @@
 ![Prime Ministers place mat](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Prime-Ministers-place-mat-2-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "prime-ministers-place-mat-2")
 
-A long time ago, I bought a laminated place mat of the Prime Ministers of Canada, figuring that it might be more fun for my kids to pick up bits of ![prime-ministers-place-mat-2](http://yflmainprod.wpengine.com/wp-content/uploads/2016/09/Prime-Ministers-place-mat-2-300x211.jpg)Canadian history over breakfast than learning them by rote at school. My oldest daughter, nearly 13 now, ignored it until Justin Trudeau made it cool to be a Prime Minister. Then she noted that the place mat isn’t up to date – it ends at Jean Chretien – and she ignored it once again. My 9-year-old daughter Clarice, however, started to study the thing and quiz my husband, Mark, and me to see what we know.
+A long time ago, I bought a laminated place mat of the Prime Ministers of Canada, figuring that it might be more fun for my kids to pick up bits of ![prime-ministers-place-mat-2](attachments/Prime-Ministers-place-mat-2-300x211.jpg)Canadian history over breakfast than learning them by rote at school. My oldest daughter, nearly 13 now, ignored it until Justin Trudeau made it cool to be a Prime Minister. Then she noted that the place mat isn’t up to date – it ends at Jean Chretien – and she ignored it once again. My 9-year-old daughter Clarice, however, started to study the thing and quiz my husband, Mark, and me to see what we know.
 
 “When was Alexander Mackenzie born?” No clue.
 
@@ -44,7 +44,7 @@ So, instead of making Ms. Campbell dig through years’ worth of blog posts, I d
 
 *My big-picture goal is to create a world-wide organization that will support women’s financial education and make a substantive difference in their lives. As part of that, I also want to educate our teenagers so that they don’t follow in the footsteps of adults because, frankly, adults have shown that by and large, they aren’t exactly brilliant with money. When they are good with money, they tend not to talk about it, therefore their knowledge doesn’t get passed on to their children. As for our schools, they are silent on the subject of financial literacy.*
 
-*In a nutshell, I intend to help change the financial game for women. It’s time.![kim-campbell-call-1](http://yflmainprod.wpengine.com/wp-content/uploads/2016/09/Kim-Campbell-call-1-1-213x300.jpg)*
+*In a nutshell, I intend to help change the financial game for women. It’s time.![kim-campbell-call-1](attachments/Kim-Campbell-call-1-1-213x300.jpg)*
 
 *Some day, I’d love to meet you in person and ask you the questions that I posed to the women I interviewed: If you had known what was coming in your life, what would you have done differently? What advice do you have for women based on your experiences?*
 

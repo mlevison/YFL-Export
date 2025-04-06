@@ -1,6 +1,6 @@
 ![Blind choice](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Neglect-1-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "I do not know what I choose, blind luck")
 
-Anna\* was surprised by what she found when she started digging into the less obvious details of her finances – her spending patterns.![Blind choice](http://yflmainprod.wpengine.com/wp-content/uploads/2018/09/Neglect-1.jpg)
+Anna\* was surprised by what she found when she started digging into the less obvious details of her finances – her spending patterns.![Blind choice](attachments/Neglect-1.jpg)
 
 Anna is a professional who works with financial information all day long. Both she and her spouse have great salaries, they don’t have any debt beyond their mortgage, and they have a sizable chunk of change invested for their retirement. “I’m really good with money and we’re doing well. I’m pretty sure I don’t need this,” she insisted when she heard about my **[Money Mastery courses](https://yflmainprod.wpengine.com/).** “Why would I go?”
 

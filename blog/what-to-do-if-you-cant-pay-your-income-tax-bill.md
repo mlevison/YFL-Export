@@ -1,6 +1,6 @@
 ![tax return](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/tax-return-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "tax return")
 
-Ahhh, tax time, everyone’s favorite time of year. April for most adults in Canada and the US means that it’s time to pay personal income tax. For most accountants, on the other hand, it means that they haven’t ![tax return](http://yflmainprod.wpengine.com/wp-content/uploads/2016/04/tax-return-300x225.jpg)seen their families in a couple of months as they work to get all the returns completed by the deadline. Good times.
+Ahhh, tax time, everyone’s favorite time of year. April for most adults in Canada and the US means that it’s time to pay personal income tax. For most accountants, on the other hand, it means that they haven’t ![tax return](attachments/tax-return-300x225.jpg)seen their families in a couple of months as they work to get all the returns completed by the deadline. Good times.
 
 So you’ve managed to complete your taxes by the due date but there’s just one problem: you really don’t like the number on the final line showing how much you owe the government. Actually, it’s not just that you don’t like it, you also don’t happen to have that money available to pay off the debt in full. What should you do?
 
@@ -10,7 +10,7 @@ Advice like that makes me want to bang my head repeatedly on a brick wall. What 
 
 Just Say No to credit card debt. **What do you do when you find yourself in a big hole? Stop digging!** Credit card debt will just add to your hole. Even the government doesn’t charge 20% interest.
 
-![No Ostriches](http://yflmainprod.wpengine.com/wp-content/uploads/2016/04/No-Ostriches-150x150.jpg)So what are your options if you’re faced with a bill that you can’t manage in full? Let’s start with what *not* to do: don’t ignore it. This is not the time to pull an ostrich routine because that would be the equivalent of poking a stick in the government’s eye and they won’t react well. They will not forget about your debt and they won’t go away. Instead, they will use the powerful tools at their disposal to go after you, and they’ll charge you a pile of interest and penalties in the process.
+![No Ostriches](attachments/No-Ostriches-150x150.jpg)So what are your options if you’re faced with a bill that you can’t manage in full? Let’s start with what *not* to do: don’t ignore it. This is not the time to pull an ostrich routine because that would be the equivalent of poking a stick in the government’s eye and they won’t react well. They will not forget about your debt and they won’t go away. Instead, they will use the powerful tools at their disposal to go after you, and they’ll charge you a pile of interest and penalties in the process.
 
 If you’re someone who plans not to file your taxes because you suspect you’re going to owe money, think again. Perm Persaud of [Ark Accounting and Tax](http://arkaccounting.com/) puts it this way, “I normally **recommend filing your taxes on time if you owe money so that you can avoid the penalties. It’s the penalties that will hurt the most and they add up very quickly** if you are behind in filings. If you then don’t pay what you owe on time, you will be hit with interest charges. CRA (Canada Revenue Agency) updates their interest charges each quarter and currently they charge 5% on overdue taxes.”
 

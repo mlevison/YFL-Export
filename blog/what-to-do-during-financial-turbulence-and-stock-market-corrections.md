@@ -14,7 +14,7 @@ If so, you’re not alone. There is evidence of panic and fear everywhere you tu
 
 Check out this headline from CNN:
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/CNN-headline-fear-1024x261.png)
+![](attachments/CNN-headline-fear-1024x261.png)
 
 “Plunge.” “Crashes.” Perfect language to prey on our emotions.
 
@@ -22,7 +22,7 @@ It’s one of a dozen articles I could have selected. The point is that the mess
 
 Exhibit A from a [Reuters.com article](https://www.reuters.com/article/us-health-coronavirus-toiletpaper/rationing-and-robbery-coronavirus-outbreak-sparks-toilet-roll-panic-idUSKBN20T0YG)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/Reuters-dot-com-article-about-toilet-paper-panic.png)
+![](attachments/Reuters-dot-com-article-about-toilet-paper-panic.png)
 
 Let’s let that sink in: *toilet roll panic*.
 
@@ -40,13 +40,13 @@ Let’s consider the Canadian stock market to illustrate this.
 
 Here’s a look at the last month for the Toronto Stock Market Index, or the S&P/TSX Composite Index, taken from [TradingEconomics.com](https://tradingeconomics.com/canada/stock-market):
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/SP-TSX-Toronto-Stock-Market-Index-1-month-view-trading-economics-dot-com-1.png)
+![](attachments/SP-TSX-Toronto-Stock-Market-Index-1-month-view-trading-economics-dot-com-1.png)
 
 You don’t have to be a genius with graphs to understand that the above is bad news for the Canadian stock market. It would be dangerous to toboggan off that nasty slope! No wonder we’re panicking, right?
 
 Well, hold on. Let’s dial it back six months to see what the graph looks like:
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/SP-TSX-6-month-graph.png)
+![](attachments/SP-TSX-6-month-graph.png)
 
 Still not feeling very good. We were right to panic!
 
@@ -54,13 +54,13 @@ Except hold on again. One of the first rules of investing is that it’s a long 
 
 How does the S&P/TSX Composite index fare when we look back over a decade? Here it is:
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/SP-TSX-10-year-graph.png)
+![](attachments/SP-TSX-10-year-graph.png)
 
 Much better.
 
 The story becomes clearer when you roll back the clock even farther:
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/SP-TSX-long-term-graph.png)
+![](attachments/SP-TSX-long-term-graph.png)
 
 Now do you feel better?
 

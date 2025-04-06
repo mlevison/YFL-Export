@@ -1,6 +1,6 @@
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Shea-coffee-maker-back-on-countertop-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg)
+![](attachments/Shea-coffee-maker-back-on-countertop-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/10/Shea-coffee-maker-back-on-countertop-for-blog-post-2.jpg)
+![](attachments/Shea-coffee-maker-back-on-countertop-for-blog-post-2.jpg)
 
 A while back, I sent out a Money Tip to my mailing list about the dangers of loss aversion and sunk costs, two pervasive financial challenges described in behavioral economics. A reader, Mia, reached out with a funny, related story about her cappuccino maker. I’ll get to that in a second. First, though, here’s the core of what I said to my readers.
 
@@ -91,11 +91,11 @@ Naturally, I followed up with an “Isn’t that interesting?” response. I ask
 
 > Coffee maker in the box:
 > 
-> ![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/10/Shea-coffee-maker-image-for-blog-post-225x300.jpg)
+> ![](attachments/Shea-coffee-maker-image-for-blog-post-225x300.jpg)
 > 
 > Coffee maker out of the box, next to the wine (in colourful bag):
 > 
-> ![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/10/Shea-coffee-maker-back-on-countertop-225x300.jpg)
+> ![](attachments/Shea-coffee-maker-back-on-countertop-225x300.jpg)
 > 
 > Mia thinks the coffee maker looks GREAT on her new counter. She took it with her because she didn’t take the time to sell it before her move. Now, it’s almost like a joke, to carry this symbol of sunken cost around with her, to remind her to think twice about making big new shiny purchases.
 

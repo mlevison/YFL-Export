@@ -62,7 +62,7 @@ Just, grown.
 
 #### And the rest of the women?
 
-The topic alone caused their palms to sweat. ![😱](https://s.w.org/images/core/emoji/13.0.1/svg/1f631.svg)
+The topic alone caused their palms to sweat. ![😱](attachments/1f631.svg)
 
 Some had zero investments and were totally stressed about that. “I wonder if it’s too late for me?” they asked.
 

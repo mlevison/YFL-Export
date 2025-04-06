@@ -1,6 +1,6 @@
 ![badger](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/badger-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "badger")
 
-When I published my last blog post on the fact that it [does not always make sense to keep the matrimonial home](https://yflmainprod.wpengine.com/2018/04/not-all-dollars-are-equal-in-divorce-settlements/) in a divorce, I received emails from people heading into a divorce for whom that issue was timely. Should they![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/05/badger-300x173.jpg) rent or buy another home, they wanted to know?
+When I published my last blog post on the fact that it [does not always make sense to keep the matrimonial home](https://yflmainprod.wpengine.com/2018/04/not-all-dollars-are-equal-in-divorce-settlements/) in a divorce, I received emails from people heading into a divorce for whom that issue was timely. Should they![](attachments/badger-300x173.jpg) rent or buy another home, they wanted to know?
 
 Then I heard from a younger woman whose friends and family are badgering her to buy a house. She earns a good living, saves money every month, and pays rent. For some reason, her entourage is bugged by her rent payments. “Why throw your money away every month?” they ask. “Why not grow some equity in a place that’s your own? It’s a great investment!”
 

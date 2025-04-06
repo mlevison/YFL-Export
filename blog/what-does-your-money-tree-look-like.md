@@ -64,7 +64,7 @@ Good luck! Let me know what you come up with. Reach out if you have any question
 
 #### Could you use some tips on thriving during the pandemic? If so, click here to access Doris’s FREE 83-Page Ultimate Guide.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/05/Ultimate-Guide-cover.png)
+![](attachments/Ultimate-Guide-cover.png)
 
 #### Share this post
 

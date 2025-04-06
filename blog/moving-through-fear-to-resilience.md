@@ -1,6 +1,6 @@
 ![driving smaller file](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/driving-smaller-file-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "driving smaller file")
 
-[![driving smaller file](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/driving-smaller-file-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/driving-smaller-file.jpg)Has fear ever stopped you from moving forward with a project? Have you ever kept quiet at a key moment for fear of sounding foolish or said “no thanks” to an opportunity because you were afraid that you might fail?
+[![driving smaller file](attachments/driving-smaller-file-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/driving-smaller-file.jpg)Has fear ever stopped you from moving forward with a project? Have you ever kept quiet at a key moment for fear of sounding foolish or said “no thanks” to an opportunity because you were afraid that you might fail?
 
 Last week I had a moving chat with my ten year old, Miss A, and it got me thinking about the issue of fear.
 
@@ -32,7 +32,7 @@ A few years ago, when Miss A was mad at me about who-knows-what, she lashed out,
 
 ## A million moments of fear
 
-That’s when I shared a story from my childhood when I was roughly her age. I have experienced a million moments of fear in my life and I still do every time I launch into something new. There’s uncertainty (is this a dumb idea?), doubt (am [![horse](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/horse-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/horse.jpg)I good enough?), fear of failure (what if I’m terrible at this?) – all of the usual stuff that comes with moving out of one’s comfort zone. But the story that sticks with me dates back to the day that my dad decided it was time to ride a horse on my own.
+That’s when I shared a story from my childhood when I was roughly her age. I have experienced a million moments of fear in my life and I still do every time I launch into something new. There’s uncertainty (is this a dumb idea?), doubt (am [![horse](attachments/horse-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/horse.jpg)I good enough?), fear of failure (what if I’m terrible at this?) – all of the usual stuff that comes with moving out of one’s comfort zone. But the story that sticks with me dates back to the day that my dad decided it was time to ride a horse on my own.
 
 That day, dad took me to the corral and brought out our two horses. One was a regular-sized horse but the second, Dooley, was a much smaller breed, more suited to a child. Dad showed me how to put the saddle on and then he helped me up. He handed me the reins and turned to mount his own horse.
 

@@ -217,7 +217,7 @@ To ensure you’re in rave mode and not rant mode about your finances when this 
 - ##### Apply the Values Test
 	– to ensure your choices between now and December 31st are in your highest, best interests.
 
-[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make savvy financial decisions that are in your highest, best interests *every time*?**
 

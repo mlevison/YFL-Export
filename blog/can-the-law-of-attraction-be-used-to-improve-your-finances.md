@@ -1,6 +1,6 @@
 ![magnet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/magnet-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "magnet")
 
-![magnet](http://yflmainprod.wpengine.com/wp-content/uploads/2016/11/magnet-300x291.jpg)This could be the shortest blog post ever if I answered my own question with a single-word answer, but that wouldn’t provide justification for my position. I want to unpack what is commonly referred to as the Law of Attraction in order to understand whether or not it can help when it comes to improving our finances.
+![magnet](attachments/magnet-300x291.jpg)This could be the shortest blog post ever if I answered my own question with a single-word answer, but that wouldn’t provide justification for my position. I want to unpack what is commonly referred to as the Law of Attraction in order to understand whether or not it can help when it comes to improving our finances.
 
 In a [blog post](https://yflmainprod.wpengine.com/2016/09/dear-former-prime-minister-heres-what-i-do-for-women-and-why-i-do-it/) addressed to a former Prime Minister, I discuss the wealth gap that is at the heart of my work. Can we address this big problem by simply applying the Law of Attraction (LOA)?
 

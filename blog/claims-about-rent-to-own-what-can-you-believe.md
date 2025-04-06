@@ -2,7 +2,7 @@
 
 It looks like the hype about Rent to Own is back.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/06/break-in-the-wall-1185086.jpg)
+![](attachments/break-in-the-wall-1185086.jpg)
 
 Housing sales aren’t the only part of real estate that goes in cycles. Ten years ago, everyone was saying that Rent to Own was a scam. A few years later, it was all the rage in the world of real estate investing. Rent to Own “experts” (according to the claims on their newly-minted websites) were everywhere, promising returns in the high double-digits with virtually no risk. Then, when the going got tough, many of the companies disappeared.
 

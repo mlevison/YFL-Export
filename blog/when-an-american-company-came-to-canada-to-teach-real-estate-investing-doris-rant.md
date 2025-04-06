@@ -1,6 +1,6 @@
 ![American flag](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/American-flag-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "American flag")
 
-Dear American company,[![American flag](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/American-flag-203x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/American-flag.jpg)
+Dear American company,[![American flag](attachments/American-flag-203x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/American-flag.jpg)
 
 I’ve never actually gone public with a rant before. They’re usually reserved for close friends with whom I feel very comfortable, but for you I’m going to make a one-time exception and put this out there beyond my inner circle because you have caused quite a stir with me and my friend Sandra. As a result, we have a message for our fellow Canadians.
 
@@ -85,7 +85,7 @@ You know, before you start to wonder what happened to those supposedly polite Ca
 
 It’s too bad I didn’t get my hands on a feedback form before we high-tailed it out of there when Jimmy refused us entry. If I had, I would have borrowed from my ten-year-old and given you an Epic Fail. You just gave a master class on how not to run an event.
 
-[![Canadian Flag](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/Canadian-Flag-300x199.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/Canadian-Flag.jpg)**Here’s my message to my fellow Canadians:** Learn about investing in real estate in Canada from Canadian experts. There are heaps of them. I can think of several really good Canadian educational companies, experts and groups without straining too many brain cells. These people actually own property in Canada, they know the market, they understand our processes and they have proper documentation to pull it off. I’m sure there are some really great American companies who do it well too, but you know what Canadians? There’s gold in the form of experience in your own back yard.
+[![Canadian Flag](attachments/Canadian-Flag-300x199.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/Canadian-Flag.jpg)**Here’s my message to my fellow Canadians:** Learn about investing in real estate in Canada from Canadian experts. There are heaps of them. I can think of several really good Canadian educational companies, experts and groups without straining too many brain cells. These people actually own property in Canada, they know the market, they understand our processes and they have proper documentation to pull it off. I’m sure there are some really great American companies who do it well too, but you know what Canadians? There’s gold in the form of experience in your own back yard.
 
 And my message to you, dear American company, is this: Go home and don’t come back until you have more respect for your potential Canadian clientele and material that is designed for the Canadian market. Better yet, when you do come back please do so as a tourist. We will all have much more fun that way.
 

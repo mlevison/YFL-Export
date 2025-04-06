@@ -1,6 +1,6 @@
-![old decorative key](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/old-decorative-key-1414283-639x426-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
+![old decorative key](attachments/old-decorative-key-1414283-639x426-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/08/old-decorative-key-1414283-639x426.jpg)If I gave you $300,000, would that be the key to solving your financial challenges?
+![](attachments/old-decorative-key-1414283-639x426.jpg)If I gave you $300,000, would that be the key to solving your financial challenges?
 
 If someone asked me that question, the smart-ass in me would quip, “Well, it wouldn’t hurt.”
 

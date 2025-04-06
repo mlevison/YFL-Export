@@ -24,7 +24,7 @@ There’s no shortage of suggestions from personal finance writers when it comes
 
 In an [article for Wealthsimple](https://www.wealthsimple.com/en-ca/learn/50-30-20-rule?gclid=CjwKCAjwi9-HBhACEiwAPzUhHNJ__lQNKvQEKs_1pl4PKGcDd4xmnmVzmiap9dmTz4cFIHjPvWUhXRoCvXYQAvD_BwE#what_does_the_50_30_20_rule_mean), author Dennis Hammer provides the following illustration of the 50/30/20 Rule:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/07/50-30-20-rule.png)
+ ![](attachments/50-30-20-rule.png)
 
 I have no idea who first created this rule and what they based it on, but the rule states that you should target no more than 50% of your after-tax dollars for spending on your needs, 30% for your wants, and 20% for your financial goals.
 

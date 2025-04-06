@@ -1,4 +1,4 @@
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/small-steps-lindsay-henwood-7_kRuX1hSXM-unsplash-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg)
+![](attachments/small-steps-lindsay-henwood-7_kRuX1hSXM-unsplash-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg)
 
 With all the hype around the first month of the new year, you’ve probably heard people encourage you to dream big, shoot for the stars, plan to crush lofty goals in 2020!
 
@@ -12,7 +12,7 @@ It’s good to dream big, but it’s the “how” that makes us break into a sw
 
 If the idea of big, meaty goals for this year doesn’t resonate with you, I’m going to suggest a different approach.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/01/small-steps-lindsay-henwood-7_kRuX1hSXM-unsplash-300x200.jpg)
+![](attachments/small-steps-lindsay-henwood-7_kRuX1hSXM-unsplash-300x200.jpg)
 
 **Focus on small wins and small steps to accomplish big things.**
 

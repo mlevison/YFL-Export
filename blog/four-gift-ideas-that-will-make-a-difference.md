@@ -1,6 +1,6 @@
 ![christmas box](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/christmas-box-1186035-640x480-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "OLYMPUS DIGITAL CAMERA")
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2016/12/christmas-box-1186035-640x480-300x225.jpg)
+![](attachments/christmas-box-1186035-640x480-300x225.jpg)
 
 We all have people on our Christmas list who are impossible to buy for. Clothes? There are size and taste issues. Wine? Yes, OK, always useful (unless you’re buying for a child) but not exactly inspired. And guessing what a teenager wants is a mug’s game. My thirteen year old blithely told a friend of mine that if I like something, it pretty much means she’ll dislike it, though not always but most of the time (I’m quoting here).
 
@@ -46,7 +46,7 @@ ME: You’re right. You have great skills, but you often let a lack of confidenc
 
 A: I’d play well and I might win the t-shirt.
 
-This went on for a bit, and by the end my daughter had agreed to amp up her confidence for the first game. It didn’t work. One moment she was fully confident, the next she was all hesitation and uncertainty. ![chris-paulin-tournament](http://yflmainprod.wpengine.com/wp-content/uploads/2016/12/Chris-Paulin-tournament-187x300.jpg)Afterwards she was dejected. “I failed completely,” she said. I insisted she had done nothing of the kind, and pointed to the moments where she had played with full confidence. I suggested that she focus on those for the second game. She did that – and played superbly. She was always open, hit a personal best for points scored and put in a great performance on defense. The result? She was awarded the MVP t-shirt for our team at that game.
+This went on for a bit, and by the end my daughter had agreed to amp up her confidence for the first game. It didn’t work. One moment she was fully confident, the next she was all hesitation and uncertainty. ![chris-paulin-tournament](attachments/Chris-Paulin-tournament-187x300.jpg)Afterwards she was dejected. “I failed completely,” she said. I insisted she had done nothing of the kind, and pointed to the moments where she had played with full confidence. I suggested that she focus on those for the second game. She did that – and played superbly. She was always open, hit a personal best for points scored and put in a great performance on defense. The result? She was awarded the MVP t-shirt for our team at that game.
 
 A lack of confidence is at the root of so many challenges for women and girls. It shows up in every aspect of our lives: the way we perform, invest, earn and grow. If I could ask Santa to give a single gift to all women, it would be the gift of confidence.
 

@@ -1,6 +1,6 @@
 ![Money maze](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Money-maze-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Money maze")
 
-What should I say to these women?[![Money maze](http://yflmainprod.wpengine.com/wp-content/uploads/2015/01/Money-maze-300x217.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/01/Money-maze.jpg)
+What should I say to these women?[![Money maze](attachments/Money-maze-300x217.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/01/Money-maze.jpg)
 
 That’s the question I’ve been asking myself ever since I was asked to speak at the Royal Ottawa Mental Health Centre. On Monday I will address a group of women who are working through mental health issues while trying to rebuild their lives. It’s a pretty safe bet that their financial worlds are not rosy.
 

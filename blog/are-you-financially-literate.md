@@ -1,6 +1,6 @@
 ![Skill concept. Hand holding can watering small patch of grass with sign reading "skill"](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-657955822-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Skill concept. Fresh and green grass on wood background")
 
-When people learn that I am a financial literacy educator, they typically respond in one of two ways:![Skill concept. Hand holding can watering small patch of grass with sign reading "skill"](http://yflmainprod.wpengine.com/wp-content/uploads/2019/01/iStock-657955822-1024x726.jpg)
+When people learn that I am a financial literacy educator, they typically respond in one of two ways:![Skill concept. Hand holding can watering small patch of grass with sign reading "skill"](attachments/iStock-657955822-1024x726.jpg)
 
 “We certainly need more of that, especially for kids in high school.”
 
@@ -121,7 +121,7 @@ They also know how to answer the ten questions in this post.
 
 ### Adding Value
 
-![Happy woman in field with arms in the air](http://yflmainprod.wpengine.com/wp-content/uploads/2018/12/iStock-897954642-min-300x180.jpg)
+![Happy woman in field with arms in the air](attachments/iStock-897954642-min-300x180.jpg)
 
 Those who want to really crank up the effectiveness of their money management system tie their spending to their values. They don’t try to figure out the best use of their funds after they’ve done most of their spending; they *start* by asking, “What do I want my money to do for me? What do I value?” They apportion their cash accordingly.
 

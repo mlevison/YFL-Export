@@ -2,7 +2,7 @@
 
 In October, I got an email from a Women’s Money Group member that moved me. Here’s part of what she said\*:
 
-![young plant growing through crack in ground](http://yflmainprod.wpengine.com/wp-content/uploads/2018/11/iStock-493770526-for-blog-post.jpg)
+![young plant growing through crack in ground](attachments/iStock-493770526-for-blog-post.jpg)
 
 “Last month I left with such a headache I did not know if I would be back, but I am glad I came. I was having a horrible day and all I wanted to do was stay home alone. **I see I have so many emotions and feelings (guilt, fear…) related to money, in addition to \[a difficult personal situation\]**. I have so much to learn and do before I can truly understand what is going on, but with the little I did grasp from last meeting I sensed I gained a little confidence and felt so much better for taking care of myself. Talking to you made me feel I am not such a lost case after all.”
 

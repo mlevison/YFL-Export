@@ -1,6 +1,6 @@
 ![yellow taxi](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/taxi-jordan-andrews-415989-unsplash-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "taxi-jordan-andrews-415989-unsplash")
 
-![yellow taxi](http://yflmainprod.wpengine.com/wp-content/uploads/2018/05/taxi-jordan-andrews-415989-unsplash-244x300.jpg)I don’t know what it is about me and taxi drivers. Whenever I’m in a car alone with them – something that happens infrequently – they tell me their life story.
+![yellow taxi](attachments/taxi-jordan-andrews-415989-unsplash-244x300.jpg)I don’t know what it is about me and taxi drivers. Whenever I’m in a car alone with them – something that happens infrequently – they tell me their life story.
 
 Four years ago, I was told by a driver that he was too old to succeed and that I am really old. Well, that was the implication since it turns out that we are the same age. You can read about our surprising exchange in [this blog post](https://yflmainprod.wpengine.com/2014/11/are-you-too-old-to-succeed/).
 

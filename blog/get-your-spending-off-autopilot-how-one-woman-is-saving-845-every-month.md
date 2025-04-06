@@ -2,7 +2,7 @@
 
 Impressive results occur when you take a systematic, deliberate approach to your finances.
 
-Every week, I send out a money tip and an action step to the people on my mailing list. In my last newsletter, I talked about how to save money and the related problem of putting your spending on auto-pilot, particularly for larger items.![unhappy Asian woman holding wallet with money flying out of it, overspending concept](http://yflmainprod.wpengine.com/wp-content/uploads/2019/01/iStock-916397168-for-blog-post.jpg)
+Every week, I send out a money tip and an action step to the people on my mailing list. In my last newsletter, I talked about how to save money and the related problem of putting your spending on auto-pilot, particularly for larger items.![unhappy Asian woman holding wallet with money flying out of it, overspending concept](attachments/iStock-916397168-for-blog-post.jpg)
 
 For example, you grumble about your mortgage and insurances, but you renew them anyway. Cable and telecommunications packages are on auto-pay. When your car becomes a bit long in the tooth, you automatically start looking for a new one.
 
@@ -59,7 +59,7 @@ Kudos to this woman! I love what she did for many reasons. Let me count the ways
 5. She is making plans for the savings and rerouting some of it back into the mortgage to pay down the principle. Having a plan for future savings makes her a rock star.
 6. She’s not done. It would be easy for her to rest on her laurels, but she’s not doing that. Instead, she’s turning her sights to her home insurance and going from there.
 7. She will not incur one more dime of corrosive debt, so no more money lost to credit card interest. (Right, Ms. Reader?! Otherwise consolidation becomes a sort of trap.)  
-	![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/05/Starbucks-quan-le-420104-unsplash.jpg)
+	![](attachments/Starbucks-quan-le-420104-unsplash.jpg)
 
 I cannot wait to hear how much she ends up saving when she’s done reevaluating the big expenditures in her life.
 

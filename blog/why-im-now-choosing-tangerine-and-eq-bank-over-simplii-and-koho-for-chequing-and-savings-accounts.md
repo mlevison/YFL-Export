@@ -32,7 +32,7 @@ That wasn’t an issue for me in my selection process, because the only thing th
 
 Here is a chart taken from the [CDIC website](https://www.cdic.ca/your-coverage/protecting-your-deposit/) regarding what is covered:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/11/CDIC-coverage.png)
+ ![](attachments/CDIC-coverage.png)
 
 All of the institutions I will consider in this post are members of CDIC.  
   
@@ -81,7 +81,7 @@ Here are the factors I considered:
 
 I created a spreadsheet of the options I considered and how they stack up on the factors noted above.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/11/Image-of-spreadsheet-1024x701.png)
+ ![](attachments/Image-of-spreadsheet-1024x701.png)
 
 You’ll notice that two columns are highlighted. At the risk of wrecking the ending, those are the ultimate winners I selected for my daughter.
 
@@ -97,7 +97,7 @@ This account has served me well over the years, but it hasn’t aged well. **Sim
 
 What I like about Simplii, though, is its simple dashboard where you can easily see and click on any action you want to take. Here’s a view from my account:
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/12/Simplii-dashboard-UPDATED-DEC-2023-v2-296x300.png)
+![](attachments/Simplii-dashboard-UPDATED-DEC-2023-v2-296x300.png)
 
 Regardless of what I want to do, every possible action is available from the vertical menu bar on the left. It’s not attractive, but it is functional.
 
@@ -129,7 +129,7 @@ Since my post, Tangerine has added 2-factor authentication as an option to their
 
 Or, you can now choose this:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/11/Tangerine-log-in-3.png)
+ ![](attachments/Tangerine-log-in-3.png)
 
 You already know from what I said above that I’m going to recommend the Tangerine checking account to my daughter, but it comes with **this caveat: you must use it with 2-step (otherwise known as 2-factor) authentication in order to be protected.**
 
@@ -163,7 +163,7 @@ I’m still going to help her get her first credit card asap, but this is a terr
 
 Another thing Tangerine has improved is its dashboard. That was a sticking point for me when I wrote a compare and contrast article between Simplii and Tangerine. Here’s what it looks like today:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/11/Tangerine-dashboard.png)
+ ![](attachments/Tangerine-dashboard.png)
 
 All the main actions are now visible from the home page, including sending e-transfers.
 
@@ -265,7 +265,7 @@ You may decide that a different combo of checking and savings accounts is right 
 
 I’d love to hear from you: Which accounts are you using and why? Shoot me a comment below.
 
-[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make savvy financial decisions that are in your highest, best interests *every time*?**
 

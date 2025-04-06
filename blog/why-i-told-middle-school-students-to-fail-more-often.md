@@ -1,6 +1,6 @@
 ![girl in white holding her hands up](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/girl-in-white-holding-her-hands-up-1306644-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "girl-in-white-holding-her-hands-up-1306644")
 
-My daughter’s middle school recently invited me to address the students during their Me to We Day event. I was asked to speak on![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/06/girl-in-white-holding-her-hands-up-1306644-201x300.jpg) overcoming hardship and financial literacy. This is what I told them:
+My daughter’s middle school recently invited me to address the students during their Me to We Day event. I was asked to speak on![](attachments/girl-in-white-holding-her-hands-up-1306644-201x300.jpg) overcoming hardship and financial literacy. This is what I told them:
 
 “Today, I’m going to share with you a story about overcoming tragedy – it’s my own story – and two important lessons I learned while working my way through the difficulties, lessons that I share in [the book I’ve just published](https://www.amazon.ca/Protect-Purse-Shared-Lessons-Women/dp/0995821801/ref=sr_1_1_twi_pap_2?ie=UTF8&qid=1496763896&sr=8-1&keywords=protect+your+purse). They revolve around resilience and financial literacy.
 

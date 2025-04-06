@@ -82,7 +82,7 @@ I’m willing to pay for comfort (more on that in a sec), the right fit, and sup
 
 Like these gems:
 
-![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/wn4FuNne2V7WK2nFeFiuV2)
+![](attachments/wn4FuNne2V7WK2nFeFiuV2.jpg)
 
 I’ve owned them for years and they still look new.
 
@@ -142,7 +142,7 @@ During a recent trip to Spain, we stayed in a former palace whose dining room wa
 
 This is where we ate breakfast every morning we were there:
 
-![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/8zWij8XbFRmbqD7JHHGqf1)
+![](attachments/8zWij8XbFRmbqD7JHHGqf1.jpg)
 
 The experience was worth every dime.
 
@@ -237,7 +237,7 @@ Much love, ❤️
 
 Doris
 
-[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make savvy financial decisions that are in your highest, best interests *every time*?**
 

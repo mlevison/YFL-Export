@@ -1,6 +1,6 @@
 ![ski sign](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/ski-sign-1525674-640x480-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "ski-sign-1525674-640×480")
 
-It was a simple question: “What are you reading at the moment?” The reaction was interesting, and spoke volumes.![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/08/ski-sign-1525674-640x480.jpg)
+It was a simple question: “What are you reading at the moment?” The reaction was interesting, and spoke volumes.![](attachments/ski-sign-1525674-640x480.jpg)
 
 Several colleagues had talked to me about this person. “You should interview them\*. They have decades of experience in their field. They would be a great resource for you.”
 

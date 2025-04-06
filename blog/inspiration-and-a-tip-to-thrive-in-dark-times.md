@@ -1,6 +1,6 @@
 ![Hand flip wooden cube with word change to chance, Personal development and career growth or change yourself concept](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/mindset-iStock-1008719738-edited-for-blog-post-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "Hand flip wooden cube with word change to chance, Personal development and career growth or change yourself concept")
 
-How about a dose of inspiration to energize your day, followed by a tip to thrive in these difficult times?![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/mindset-iStock-1008719738-edited-for-blog-post.jpg)
+How about a dose of inspiration to energize your day, followed by a tip to thrive in these difficult times?![](attachments/mindset-iStock-1008719738-edited-for-blog-post.jpg)
 
 Let’s do it!
 

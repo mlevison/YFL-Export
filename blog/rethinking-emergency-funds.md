@@ -90,7 +90,7 @@ In other circumstances, having an Emergency Fund would be a great idea.
 
 Here is a chart that provides a values-based framework to determine when to create an Emergency Fund:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2018/07/Emergency-Fund-Decision-Tree-2-1024x839.png)
+ ![](attachments/Emergency-Fund-Decision-Tree-2-1024x839.png)
 
 ## Tackle debt first or create an Emergency Fund?
 
@@ -120,11 +120,11 @@ Let’s say you’ve just received a tax refund of $2,000. You have a choice to 
 
 In this scenario, you deposit the $2,000 in a HISA:
 
-![Calculation example for paying off debt](http://yflmainprod.wpengine.com/wp-content/uploads/2018/07/HISA-3-year-yield-2.png)
+![Calculation example for paying off debt](attachments/HISA-3-year-yield-2.png)
 
 Interest costs on your $2,000 credit card debt using **[this calculator](https://financialmentor.com/calculator/credit-card-interest-calculator):**
 
-![Credit card interest calculator](http://yflmainprod.wpengine.com/wp-content/uploads/2018/07/Credit-card-interest-calculated-e1532634136335.png)
+![Credit card interest calculator](attachments/Credit-card-interest-calculated-e1532634136335.png)
 
 What this demonstrates is that by choosing to create an Emergency Fund with the $2,000 instead of paying off the credit card debt, you will gain less than $100 in your savings account while paying more than four times that amount in interest costs over a two-year period.
 

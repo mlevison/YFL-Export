@@ -1,6 +1,6 @@
 ![number one  m](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/number-one-286987-m-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "number-one-286987-m")
 
-[![Starting point](http://yflmainprod.wpengine.com/wp-content/uploads/2014/05/Starting-point.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/05/Starting-point.jpg)So you’ve decided that it’s time to take the bull by the horns and sort out your financial situation. Or maybe you feel you’re doing fine but you realize that you don’t have have a plan in place to ensure that you’re fully protected in case life happens. You think, “Time to get that done” but where do you start?
+[![Starting point](attachments/Starting-point.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/05/Starting-point.jpg)So you’ve decided that it’s time to take the bull by the horns and sort out your financial situation. Or maybe you feel you’re doing fine but you realize that you don’t have have a plan in place to ensure that you’re fully protected in case life happens. You think, “Time to get that done” but where do you start?
 
 Lots of people will tell you that education is the first step. Education is always a good thing and I recommend it on an on-going basis, but in this case what does “education” mean? Should you read a lot of books? If so which books? There’s a bewildering array out there. Take a course? Which course? On which topic – investing, budgeting, asset protection?
 
@@ -18,7 +18,7 @@ When was the last time you heard an ad or a financial person ask you about your 
 
 Just as schools do not teach our children how to make, manage and grow money, we are not taught about this fundamental building block of financial literacy. And we are certainly not educated about how to develop a good score and which factors adversely affect it. This is surprising given the importance of a good Beacon score. Without it you will have few options available to you in a number of situations.
 
-Let me say this again: The #1 step to being financially savvy and secure is to develop and maintain a strong credit score.[![number-one-286987-m](http://yflmainprod.wpengine.com/wp-content/uploads/2014/05/number-one-286987-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/05/number-one-286987-m.jpg)
+Let me say this again: The #1 step to being financially savvy and secure is to develop and maintain a strong credit score.[![number-one-286987-m](attachments/number-one-286987-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/05/number-one-286987-m.jpg)
 
 Why? Because that’s the way that the world measures how credit-worthy you are. If you live a 100% cash lifestyle and you never have to borrow money or sign up for any services then you will be fine. In all other instances your score will come into play and it will help service providers determine whether or not you represent a reasonable risk, which in turn will affect the number of options you have. If something should happen to your spouse and suddenly you’re on your own, it will be essential to have a good score.
 

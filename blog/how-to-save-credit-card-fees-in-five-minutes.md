@@ -1,6 +1,6 @@
 ![credit cards](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/credit-cards-2-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "credit cards 2")
 
-![credit cards 2](http://yflmainprod.wpengine.com/wp-content/uploads/2016/03/credit-cards-2-300x225.jpg)Normally I pay my credit card bills in full like clockwork. The bill comes in, I reconcile all of the expenses to ensure that they are legitimate and I set up the payment online. All bills are paid one week before the due date every single time to ensure that the online payment goes through in time, except this past January.
+![credit cards 2](attachments/credit-cards-2-300x225.jpg)Normally I pay my credit card bills in full like clockwork. The bill comes in, I reconcile all of the expenses to ensure that they are legitimate and I set up the payment online. All bills are paid one week before the due date every single time to ensure that the online payment goes through in time, except this past January.
 
 One of the things that I teach is to automate as many bill payments as possible. Set it up so that it’s once and done, ensuring that you never miss a payment. If you’re like me – and I really hope you are – and you pay off the bills in full every time, then the amount that you owe varies so you can’t set up full, automated payments. To by-pass this potential hiccup, I set up recurring reminders on my computer to ensure that the moment the credit statement is issued on the 20th of every month, I get a reminder telling me to pay the thing on the first of the following month. It has been a simple and effective system for me up until January of this year.
 
@@ -10,7 +10,7 @@ The credit card company was probably delighted. Finally, they must have thought,
 
 In the chapter on credit cards he gives a script to use with the credit card company when you want to ask them to reverse charges. A few years ago I had tried this on my own and been successful, but this time I applied Ramit’s script. Here’s what it sounded like when I called the credit card company to discuss the interest charge.
 
-– Hi, I’m calling about my February statement in which there is an interest charge of $73.50.![on-the-phone-closing-the-deal-1241406-639x658](http://yflmainprod.wpengine.com/wp-content/uploads/2016/03/on-the-phone-closing-the-deal-1241406-639x658-300x232.jpg)
+– Hi, I’m calling about my February statement in which there is an interest charge of $73.50.![on-the-phone-closing-the-deal-1241406-639x658](attachments/on-the-phone-closing-the-deal-1241406-639x658-300x232.jpg)
 
 – Let me just look up your bill. Yes, I see the charge.
 

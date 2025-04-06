@@ -1,6 +1,6 @@
-![sydney nye](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/sydney-nye-2007-5-1223149-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg)
+![sydney nye](attachments/sydney-nye-2007-5-1223149-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/01/sydney-nye-2007-5-1223149-300x264.jpg)How are your New Year’s resolutions going? Have you given up on any of them yet? Some of them? The whole lot? Did you fail by the end of the first week of January? If so, consider yourself in good company.
+![](attachments/sydney-nye-2007-5-1223149-300x264.jpg)How are your New Year’s resolutions going? Have you given up on any of them yet? Some of them? The whole lot? Did you fail by the end of the first week of January? If so, consider yourself in good company.
 
 Have you noticed how many gyms advertise membership specials in December and January? The gyms do this because they understand human psychology. They know perfectly well that people will approach Christmas thinking, “I’m not in great shape, I hardly exercise and now we’ve got all these big meals coming up. Time to get to a gym!” People give themselves permission to indulge throughout the break because, well, it’s the holidays and you have to cut yourself some slack. But by God, the minute January hits they are going to fill up their Adidas bag and hit the gym three times per week. And damn it all, they are going to stick to the routine this time. No excuses.
 
@@ -49,7 +49,7 @@ Don’t get discouraged by failure; learn from it and *change your actions*.
 ### Aim lower
 
 Don’t get me wrong. I am a big fan of having BHAGs – Big Hairy Ass Goals. I have two staring me in the face, on my office wall, as I write this. They motivate me, and they also scare the crap out of me. The reason I’m slowly making my way toward those goals is because I have trained my sights on much smaller goals. Baby steps on the road to bigger goals. I do this because I know that  
-aiming high is a great way to paralyze myself into inaction. When the goals seems too big and unmanageable, all sorts of demons can get in the way – self doubt, insecurity, overwhelm, uncertainty, and procrastination.![stone-steps-3-1535281-639x423](http://yflmainprod.wpengine.com/wp-content/uploads/2017/01/stone-steps-3-1535281-639x423-150x150.jpg)
+aiming high is a great way to paralyze myself into inaction. When the goals seems too big and unmanageable, all sorts of demons can get in the way – self doubt, insecurity, overwhelm, uncertainty, and procrastination.![stone-steps-3-1535281-639x423](attachments/stone-steps-3-1535281-639x423-150x150.jpg)
 
 Figure out the big-picture goal that scares and excites you all at once, then focus on the smaller steps that will get you there. And back to item #1: you get to focus on one step, not twelve.
 

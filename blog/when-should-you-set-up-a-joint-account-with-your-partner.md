@@ -1,6 +1,6 @@
 ![cheque](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/cheque-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "cheque")
 
-A reader sent me the following question: “What are the indicators that it is time to open a joint ![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/10/cheque-300x221.jpg)account, when couples have been dating for a while and things are getting serious? How do you start sharing accounts and for what? What is the exit strategy if something goes south?”
+A reader sent me the following question: “What are the indicators that it is time to open a joint ![](attachments/cheque-300x221.jpg)account, when couples have been dating for a while and things are getting serious? How do you start sharing accounts and for what? What is the exit strategy if something goes south?”
 
 My reader then went on to provide me with a link to [this article](https://www.wealthsimple.com/en-ca/magazine/how-to-joint-account) on how and when to open a joint account. She was looking for commentary.
 

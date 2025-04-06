@@ -2,7 +2,7 @@
 
 Yes, you read that correctly: a *guy* attended a Women’s Money Group meeting. That was back in December, when I opened the doors to men. The topic was financial goals, the impact of debt, and the importance of debt repayment.
 
-![Gray Toyota Tacoma](http://yflmainprod.wpengine.com/wp-content/uploads/2019/05/toyota-tacoma-300x175.png)
+![Gray Toyota Tacoma](attachments/toyota-tacoma-300x175.png)
 
 One of my members invited her son, whom I’ll call Chris. Afterwards, I spoke with him briefly and learned that he had enjoyed the meeting. “Great,” I thought, “I’m glad he learned something” and I left it at that.
 

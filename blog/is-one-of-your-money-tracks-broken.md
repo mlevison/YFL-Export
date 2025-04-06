@@ -59,7 +59,7 @@ Whenever you have a financial challenge, you can bet that it’s attributable to
 
 Here’s a visual representation of the two tracks:
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/05/The-2-Money-Tracks-300x209.png)
+![](attachments/The-2-Money-Tracks-300x209.png)
 
 ## Mindset at the root
 

@@ -1,6 +1,6 @@
 ![radio station](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/radio-station-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "radio station")
 
-![radio-of-car-1467859-640x480](http://yflmainprod.wpengine.com/wp-content/uploads/2016/04/radio-of-car-1467859-640x480-300x209.jpg)Within two seconds of backing out of the driveway, my twelve year old asked, “Can you please turn on the radio?” The funny thing is that when no music is playing, my daughter usually clams up but as soon as the tunes start she pulls out her chatty Cathy routine. And so it was on this day the moment I turned on the radio to a local, Top 40 Hits music station. Within minutes she heard their ad about a money give-away and that got her all excited.
+![radio-of-car-1467859-640x480](attachments/radio-of-car-1467859-640x480-300x209.jpg)Within two seconds of backing out of the driveway, my twelve year old asked, “Can you please turn on the radio?” The funny thing is that when no music is playing, my daughter usually clams up but as soon as the tunes start she pulls out her chatty Cathy routine. And so it was on this day the moment I turned on the radio to a local, Top 40 Hits music station. Within minutes she heard their ad about a money give-away and that got her all excited.
 
 – That would be so cool! I want to win that contest!
 
@@ -23,7 +23,7 @@ When I went to the station’s website to look into the details, sure enough, th
 
 On the entire web page there is only a single mention of possibly using the money to pay bills, followed quickly by a suggestion that the money be used for going out for dinner or “whatever you want!”
 
-Their on-air ads focus almost entirely on spending up a storm in any way that you choose for one year. Just imagine, goes the marketing, how much fun that would be! Just imagine, goes my thinking, ![radio station](http://yflmainprod.wpengine.com/wp-content/uploads/2016/04/radio-station-150x150.jpg)just how problematic this could be.
+Their on-air ads focus almost entirely on spending up a storm in any way that you choose for one year. Just imagine, goes the marketing, how much fun that would be! Just imagine, goes my thinking, ![radio station](attachments/radio-station-150x150.jpg)just how problematic this could be.
 
 I don’t even know where to start in pointing out the ways in which this could lead to trouble. To be clear, I think it’s fantastic that the station will pay all, or a good chunk, of someone’s core expenses for one year. That really is amazing, and if the lucky winner uses this windfall intelligently, it could potentially be a game-changer for them. But if instead they follow the enticing ads and spend, spend, spend, they will probably hit a major wall when it’s all over and miss out on a tremendous opportunity.
 

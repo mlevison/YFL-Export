@@ -2,7 +2,7 @@
 
 Welcome to Part Two of Investing’s Two Basic Options.
 
-In my previous blog post, I looked at the [first option in investing: lending money](https://yflmainprod.wpengine.com/2018/08/investing-boils-down-to-two-basic-options/). Today, let’s tackle investments in which you become an owner.![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/09/Risk-iStock-495540916.jpg)
+In my previous blog post, I looked at the [first option in investing: lending money](https://yflmainprod.wpengine.com/2018/08/investing-boils-down-to-two-basic-options/). Today, let’s tackle investments in which you become an owner.![](attachments/Risk-iStock-495540916.jpg)
 
 ## OWNING
 

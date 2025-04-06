@@ -1,6 +1,6 @@
 ![No Excuses](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/No-Excuses-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "No Excuses")
 
-Days before he died, [Malcolm](https://yflmainprod.wpengine.com/2012/05/my-story-part-i/) and I managed to have some quiet time alone in his hospital room.![No Excuses](http://yflmainprod.wpengine.com/wp-content/uploads/2016/02/No-Excuses-263x300.jpg)
+Days before he died, [Malcolm](https://yflmainprod.wpengine.com/2012/05/my-story-part-i/) and I managed to have some quiet time alone in his hospital room.![No Excuses](attachments/No-Excuses-263x300.jpg)
 
 – I’ve been thinking.
 
@@ -63,7 +63,7 @@ Of approximately 30 women in the audience, nine emailed me with their action pla
 > 
 > **MB: “**I have bought Julie Broad’s book (on real estate investing) and Ramit Sethi’s book. I am searching for a good index fund. When I bought the books, I was reading two others books (work related) and doing a course. So finally, two weeks ago, I started Ramit’s book. As luck would have it, I am already doing was he suggests in the first two chapters. I will carry on with the progress.”
 
-An eighth woman, JH, impressed me with her candour. She originally emailed me the following, “I choose to set up an automatic transfer of 15$ per pay cheque (2x/month) to a savings accou![Results not excuses](http://yflmainprod.wpengine.com/wp-content/uploads/2016/02/Results-not-excuses-150x150.jpg)nt because my investments matter.” When I followed up here’s the reply I got: “I am disappointed to say that I had every good intention to set up an automatic transfer and then totally forgot.”
+An eighth woman, JH, impressed me with her candour. She originally emailed me the following, “I choose to set up an automatic transfer of 15$ per pay cheque (2x/month) to a savings accou![Results not excuses](attachments/Results-not-excuses-150x150.jpg)nt because my investments matter.” When I followed up here’s the reply I got: “I am disappointed to say that I had every good intention to set up an automatic transfer and then totally forgot.”
 
 What I love about her response is that she took responsibility for her failure. She didn’t blame it on her schedule or anyone else, she admitted straight-up that she forgot. As a result, I emailed her back and told her that if she completed the action within the week, I’d give her a copy of the book. Within the day I got this email, “DONE!!! I have just set up bi-weekly transfers of 15$ to my own spending account. Thank you for the reminder Doris. I think your work is very empowering to women. Thank YOU!”
 

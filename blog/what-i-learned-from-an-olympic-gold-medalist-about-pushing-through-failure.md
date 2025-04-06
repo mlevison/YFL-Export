@@ -2,7 +2,7 @@
 
 Can you think of a moment in your life when you worked very hard to achieve a goal and you failed? Or you tried to accomplish a task and you kept running up against one stumbling block after another?
 
-Did you keep going or did you quit? [![Mark McKoy](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Mark-McKoy-225x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Mark-McKoy.jpg)How did you feel as you were working through the process? Did you ever figure out what didn’t work?
+Did you keep going or did you quit? [![Mark McKoy](attachments/Mark-McKoy-225x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Mark-McKoy.jpg)How did you feel as you were working through the process? Did you ever figure out what didn’t work?
 
 Sometimes it’s so maddeningly difficult to figure out why we can’t achieve success. What on earth is going on? Is it us? Is it just that we’re not meant to have what we desire or is there a way past the difficulties? Is there a point at which we should just throw in the towel and abandon the goal?
 
@@ -14,7 +14,7 @@ When you hear his story, it gets even more remarkable. In high school, he wanted
 
 There was another catch: the school didn’t actually own hurdles. His training amounted to running around the track field pretending to jump over hurdles. You can imagine how well he did at his first track meet – dead last.
 
-[![track and field track](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/track-and-field-track-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/track-and-field-track.jpg)A normal kid might have given up at this point but not Mark. He found his own hurdles, found his own coach and ended up winning the Ontario championship a few months later.
+[![track and field track](attachments/track-and-field-track-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/track-and-field-track.jpg)A normal kid might have given up at this point but not Mark. He found his own hurdles, found his own coach and ended up winning the Ontario championship a few months later.
 
 His story goes on and on with incredible twists of ups and downs, with a heavy emphasis on the downs including an injury at the age of 26 that would have finished just about any other person. Throughout, one thing remained constant: Mark’s determination to succeed.
 
@@ -58,7 +58,7 @@ The people who cross the finish line first at the Olympics do not have losing on
 
 Mark told the story of Michael Johnson, a 4-time Olympic gold medalist in the 200m and 400m who wore very expensive gold shoes for all of his races. Afterwards, he’d toss them into the crowd. When a reporter asked what would happen if he lost, Michael replied, “I run to win. I don’t think about losing. I think about winning.”
 
-If you think about losing, that’s what you’ll get. Keep your eyes on the ultimate goal, especially when the tough times hit. Understand that failure is a necessary part of success. Learn from it, don’t dwell on it.[![Victory](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Victory-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Victory.jpg)
+If you think about losing, that’s what you’ll get. Keep your eyes on the ultimate goal, especially when the tough times hit. Understand that failure is a necessary part of success. Learn from it, don’t dwell on it.[![Victory](attachments/Victory-150x150.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Victory.jpg)
 
 Back to Mark’s medal. When he put it around my neck I got a close look at the piece of gold that represents years of toil and sacrifice. I thought of how often Mark could have chosen to quit and yet he didn’t.
 

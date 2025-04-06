@@ -2,7 +2,7 @@
 
 Does having a guy in the room make a difference to women’s comfort levels and willingness to talk about money?
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/12/Events-image-300x200.jpg)
+![](attachments/Events-image-300x200.jpg)
 
 After two years of accumulating data, I can now answer that question with certainty.
 

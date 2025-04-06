@@ -1,6 +1,6 @@
 ![Tips](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-826041452-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Tips")
 
-Today’s Money Tip has to do with a number that I hope you’re tracking – your Savings Rate. Here’s why it matters so much.![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/10/iStock-826041452-300x200.jpg)
+Today’s Money Tip has to do with a number that I hope you’re tracking – your Savings Rate. Here’s why it matters so much.![](attachments/iStock-826041452-300x200.jpg)
 
 When I worked with families to help them solve financial challenges, I realized that many people who reached out to me for help shared a common trait.
 

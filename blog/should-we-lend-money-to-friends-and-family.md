@@ -1,6 +1,6 @@
 ![IOUs](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/IOUs-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "IOUs")
 
-I received a message from a reader with the following request:![IOUs](http://yflmainprod.wpengine.com/wp-content/uploads/2016/02/IOUs-300x239.jpg)
+I received a message from a reader with the following request:![IOUs](attachments/IOUs-300x239.jpg)
 
 “I’d really like to see a blog post about the pitfalls and costs of lending friends/family money. Most loans to friends/family are interest free, and most borrowers and lenders don’t realize the costs to the lender (ie, the lender is paying for the privilege of being generous/kind). I’d love to see that broken down in two scenarios: (1) the lender has debt, and (2) the lender does not have debt but would be losing investment earnings on the money. Most loans to friends/family are small – $200 to $2000 range (based on my own unfortunate experience), and I’d love to see hard numbers on the actual cost of that over, say, a 6 month to 2 year period. I’d also like to see an “if you must do it”, advice for the conditions you should impose as the lender to protect yourself.”
 
@@ -89,7 +89,7 @@ Whose responsibility is it if the arrangement goes south? Also yours.
 
 ## Put it in writing
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2016/02/signature-sticker-1239475-640x480-150x150.jpg)
+![](attachments/signature-sticker-1239475-640x480-150x150.jpg)
 
 If you decide that you’re in a good position to lend money and the borrower appears to be trustworthy, here’s my advice: never, ever lend money without creating a written agreement. I don’t care if the deal is with the Pope who swears to God that he’ll repay. Great, put it in writing. Include all the terms – the amount borrowed, to whom, from whom, the date on which you’ll give out the funds, the terms under which the money is being lent (i.e. the interest rate if any) and the terms of the repayment (i.e. how much, how many payments, what date), etc. Put it all down in writing and then have all parties sign and date it. If they are to begin repaying in six months, then have them write you post-dated cheques. I personally would not accept promises of e-transfers. A bird in the hand… as the saying goes.
 

@@ -1,6 +1,6 @@
 ![Image of Ollie for blog post on mortgages](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Ollie-for-blog-post-on-mortgages-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Image of Ollie for blog post on mortgages")
 
-In my last blog post, I shared a short [financial literacy quiz](https://yflmainprod.wpengine.com/2019/01/are-you-financially-literate/). As promised in the post, I’m tackling each question in turn. The very first question was about mortgage renewal.![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/02/mortgage-2-300x273.jpg)
+In my last blog post, I shared a short [financial literacy quiz](https://yflmainprod.wpengine.com/2019/01/are-you-financially-literate/). As promised in the post, I’m tackling each question in turn. The very first question was about mortgage renewal.![](attachments/mortgage-2-300x273.jpg)
 
 Here it is again:
 
@@ -42,11 +42,11 @@ When [Vanessa](https://www.sculptsocial.com/), a member of my team, learned that
 
 I am picking up the gauntlet, sort of, that Vanessa has flung to the ground and I’m creating my own Monopoly-inspired system in which people or institutions that spout rubbish (yes, I said that with my outside voice) get a card that reads “**GO DIRECTLY TO THE DOG HOUSE**”, with apologies to dogs everywhere.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/02/Image-of-Ollie-for-blog-post-on-mortgages-225x300.jpg)
+![](attachments/Image-of-Ollie-for-blog-post-on-mortgages-225x300.jpg)
 
 Institutions must earn their way out of the dog house and back into your good books. (They’d better get comfy in there, based on their collective track record.)
 
-On the other hand, women who follow my recommendations will earn a personalized **GOLD STAR** ![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/02/gold-star-300x242.jpg)and the star will be placed on my **Wall of Women Rocking Their Finances.** I am going to create such a wall in my office – not kidding here. To get your very own gold star (or several of them), you just need to take a bit of action. Read on.
+On the other hand, women who follow my recommendations will earn a personalized **GOLD STAR** ![](attachments/gold-star-300x242.jpg)and the star will be placed on my **Wall of Women Rocking Their Finances.** I am going to create such a wall in my office – not kidding here. To get your very own gold star (or several of them), you just need to take a bit of action. Read on.
 
 ## Steps to Get the Best Deal Possible at Mortgage Renewal
 

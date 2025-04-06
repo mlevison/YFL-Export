@@ -1,6 +1,6 @@
 ![Woman in black shirt holding white mug that says "Like a boss"](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Like-a-boss-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Like a boss")
 
-Warning: Bold language ahead. Proceed at own risk.![Woman in black shirt holding white mug that says "Like a boss"](http://yflmainprod.wpengine.com/wp-content/uploads/2018/05/Like-a-boss-300x257.jpg)
+Warning: Bold language ahead. Proceed at own risk.![Woman in black shirt holding white mug that says "Like a boss"](attachments/Like-a-boss-300x257.jpg)
 
 When I was in Grade 12, I was obliged to have a meeting with our school’s guidance counsellor about my future. I was applying to universities and his task was to help me make wise choices regarding my career. The results of my aptitude test (I did well) and academic transcripts (>90% GPA) were fanned across his desk.
 
@@ -74,7 +74,7 @@ I’m not recommending that you be obnoxious. I taught my Women’s Money Group 
 
 I’m not saying to shoot from the hip and launch in unprepared – that would harm you. Do your homework. Learn how to negotiate effectively. Start with the following:
 
-![Shaking hands as part of an agreement](http://yflmainprod.wpengine.com/wp-content/uploads/2018/05/shaking-hands-300x200.jpg)
+![Shaking hands as part of an agreement](attachments/shaking-hands-300x200.jpg)
 
 - [Why Women Must Ask (The Right Way): Negotiation Advice From Stanford’s Margaret A. Neale](https://www.themuse.com/advice/why-women-must-ask-the-right-way-negotiation-advice-from-stanfords-margaret-a-neale)
 - [Negotiating is Trickier for Women. You Should Do it Anyway](https://twocents.lifehacker.com/negotiating-is-trickier-for-women-you-should-do-it-any-1793978437)

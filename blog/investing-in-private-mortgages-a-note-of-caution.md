@@ -100,7 +100,7 @@ What if you had followed through with your plan to invest your money in a well-d
 
 I’m using a 6.5% average annual return and not another penny added to your initial $50,000, using [this compound interest calculator](https://www.getsmarteraboutmoney.ca/calculators/compound-interest-calculator/):
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/02/compound-6-point-5.png)
+ ![](attachments/compound-6-point-5.png)
 
 Total dollars in hand at the end of 21 years = $195,066.29.
 

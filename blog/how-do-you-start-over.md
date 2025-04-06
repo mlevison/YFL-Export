@@ -1,6 +1,6 @@
 ![the end   m](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/the-end-2-1327659-m-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "the-end-2-1327659-m")
 
-When I asked my readers if there is anything in particular they want me to address, a friend replied, “How do you get your life back on track when you’ve been depressed for a couple of years?” [![the-end-2-1327659-m](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/the-end-2-1327659-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/the-end-2-1327659-m.jpg)
+When I asked my readers if there is anything in particular they want me to address, a friend replied, “How do you get your life back on track when you’ve been depressed for a couple of years?” [![the-end-2-1327659-m](attachments/the-end-2-1327659-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/the-end-2-1327659-m.jpg)
 
 That’s a big one.
 
@@ -20,7 +20,7 @@ The next year was a difficult one but through it all I discovered some things th
 
 One day in January, after the first dismal Christmas without Malcolm, I found myself walking through the forest behind my back yard. After a period of wandering aimlessly, it occurred to me that I didn’t know where I was going. In one big “aha” moment, I realized that this was the problem with my life too.
 
-Throughout my teenage years and in my twenties I always had goals and a plan. Sort out the destination, work backwards to figure out the steps and execute.[![footprints-3-449038-m](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/footprints-3-449038-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/footprints-3-449038-m.jpg)
+Throughout my teenage years and in my twenties I always had goals and a plan. Sort out the destination, work backwards to figure out the steps and execute.[![footprints-3-449038-m](attachments/footprints-3-449038-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/footprints-3-449038-m.jpg)
 
 Suddenly I was spinning. An academic career was no longer an option, the business had no future and I had no marketable skills that were easily definable. Smart? So are tons of other people. Capable? That too. Clever, creative? Yeah, yeah, get in line. My Bachelor of Arts hardly set me apart, cum laude or not.
 
@@ -52,7 +52,7 @@ I’m the kind of person who doesn’t want to impose on others or be a burden. 
 
 When Malcolm died we owned a house just north of Kingston. It was out in the country on a couple of acres surrounded by fields and cows. One night my situation really got to me. I felt that I would boil over with anger and simply had to blow off some steam. So when night came I strapped on my running shoes and went for a pounding walk that turned into a chat with the Universe.
 
-I let it all out: the anger, the frustration and the tears. Several cows turned to watch the crazy, ranting woman storming her way down the road. There was no solution, no big “aha” moment, but I did feel a whole lot better [![curious-cows](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/curious-cows.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/curious-cows.jpg)by the time I got home.
+I let it all out: the anger, the frustration and the tears. Several cows turned to watch the crazy, ranting woman storming her way down the road. There was no solution, no big “aha” moment, but I did feel a whole lot better [![curious-cows](attachments/curious-cows.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/curious-cows.jpg)by the time I got home.
 
 I did it the next night, and the next. Eventually it became a routine. I treated it like a regular conversation: “Hello, it’s me again.” Always at night when I had little to stare at other than stars and the outline of cows in the fields. Somehow it seemed more private.
 

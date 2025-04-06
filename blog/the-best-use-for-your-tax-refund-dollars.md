@@ -2,7 +2,7 @@
 
 If a **$22,000 tax refund landed in your bank account,** what would you do with it?
 
-![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/fxFsS73AmoixBxwuhWLQeD/email)
+![](attachments/email-2.jpg)
 
 That opens up some seriously fun possibilities, right?
 
@@ -32,7 +32,7 @@ Does the dollar amount change your thought process?
 
 I asked that question – about the amount – in one of my online forums and here’s what one woman responded:
 
-![](https://embed.filekitcdn.com/e/t9CQCtrCVKsyRhGvRZRfrL/3Ptu4RrqrF2AYDu3vjr2wJ)
+![](attachments/3Ptu4RrqrF2AYDu3vjr2wJ.jpg)
 
 I get it. A bigger amount somehow feels more “real”. (Hello behavioral bias.)
 

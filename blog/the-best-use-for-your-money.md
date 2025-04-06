@@ -1,6 +1,6 @@
 ![sharon-mccutcheon-552616-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/sharon-mccutcheon-552616-unsplash-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "sharon-mccutcheon-552616-unsplash")
 
-Welcome to my ongoing series on financial literacy. A short while ago, I published a [financial literacy quiz](https://yflmainprod.wpengine.com/2019/01/are-you-financially-literate/) in which I asked a series of questions. Today, we’re discussing the answers to questions 6 and 7 on the best use![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/04/sharon-mccutcheon-552616-unsplash.jpg)for your money. Here are the questions:
+Welcome to my ongoing series on financial literacy. A short while ago, I published a [financial literacy quiz](https://yflmainprod.wpengine.com/2019/01/are-you-financially-literate/) in which I asked a series of questions. Today, we’re discussing the answers to questions 6 and 7 on the best use![](attachments/sharon-mccutcheon-552616-unsplash.jpg)for your money. Here are the questions:
 
 **#6. You have just received a substantial refund from the Canada Revenue Agency.**
 
@@ -87,7 +87,7 @@ If, however you buy an investment that has an average annual return of 7% over t
 
 Here’s a good example of that:
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/04/SP-500-index-annual-returns-from-forecast-chart-dot-com.png)
+![](attachments/SP-500-index-annual-returns-from-forecast-chart-dot-com.png)
 
 Over the last sixty-eight years, the S&P500 has averaged 8.6% according to the [chart above](https://www.forecast-chart.com/historical-sp-500.html). Sounds amazing, right? Maybe not so much if you entered the market in 1999 and then faced three back-to-back years of significant losses. By 2002, you might be forgiven for thinking that the market would never recover and that you’re better off socking your money under your mattress. (Except you know that ups and downs come with investing in the stock market. You know it’s a long(er)-term gig.)
 

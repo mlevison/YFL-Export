@@ -1,6 +1,6 @@
 ![2019-08-20 12.30.50](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/2019-08-20-12.30.50-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "2019-08-20 12.30.50")
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/08/2019-08-20-13.46.57-1024x768.jpg)
+![](attachments/2019-08-20-13.46.57-1024x768.jpg)
 
 When I’m in the middle of a family holiday, I try not to check my emails. I’m pretty good about ignoring social media and electronics, but on this particular day, after a long hike, I reached for my phone to review some of the pics I had taken during the day. (The photo I’ve shared is from Sunshine Meadows, outside of Banff, Alberta. This view is actually atop a mountain. The sun was hot, the water crystal clear. Gorgeous.)
 
@@ -126,7 +126,7 @@ If you’re still stuck, reach out. I’m here for you. I can point you to books
 
 Whatever you do, if you find yourself in a financial cave, don’t stay there. It’s so much nicer on the outside.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/08/2019-08-20-12.30.50-1024x768.jpg)
+![](attachments/2019-08-20-12.30.50-1024x768.jpg)
 
 #### Share this post
 

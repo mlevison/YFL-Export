@@ -183,7 +183,7 @@ Perhaps, but if there is a clear, valid will specifying who gets what, then you�
 
 If you’ve had any experience with wills, good or bad, please share below. I’d love to hear from you.
 
-[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Updated cover image of 4 Questions Cheat Sheet](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Updated-cover-image-of-4-Questions-Cheat-Sheet-qgupc89139ckwgok6odyyav1iu4e708y36jqgwfdhw.png "Updated cover image of 4 Questions Cheat Sheet")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make savvy financial decisions that are in your highest, best interests *every time*?**
 

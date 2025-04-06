@@ -58,7 +58,7 @@ If you’re not currently on my mailing list, no problem! Just click on **[this 
 
 If there’s anything else I can do to support you during this challenging time, please reach out. I’m here for you.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/YFLportrait2020-6686-300x200.jpg)*The YFL Blog is written by Doris Belland, who believes that Money Changes Everything. Doris helps women change their lives by taking charge of their money, getting rid of corrosive debt, and building the confidence to make financial decisions for a better future, using a No Shame, No Blame, No Judgment approach.*
+![](attachments/YFLportrait2020-6686-300x200.jpg)*The YFL Blog is written by Doris Belland, who believes that Money Changes Everything. Doris helps women change their lives by taking charge of their money, getting rid of corrosive debt, and building the confidence to make financial decisions for a better future, using a No Shame, No Blame, No Judgment approach.*
 
 #### Share this post
 

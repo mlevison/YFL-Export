@@ -44,7 +44,7 @@ The reason to move would have to be hugely compelling to make us tackle that muc
 
 Second, I really like Simplii Financial’s dashboard.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/Simplii-chequing-view.png)
+ ![](attachments/Simplii-chequing-view.png)
 
 I see all my accounts at a glance, and the top services I need are in an easily accessible menu on the left.
 
@@ -54,7 +54,7 @@ It’s not a pretty dashboard, but it’s effective. I care about the latter a g
 
 Tangerine, by contrast, looks prettier, but doesn’t have the same transparent functionality. Check out the dashboard:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/tangerine-chequing-1024x745.png)
+ ![](attachments/tangerine-chequing-1024x745.png)
 
 If I want to send an e-transfer, there isn’t an immediate link on the dashboard. I have to click on my chequing account, then click on “Email Money”, then enter all the details. It’s not as quick and obvious as Simplii’s system.
 
@@ -66,7 +66,7 @@ I should mention that Tangerine offers a tiny bit more interest on dollars in th
 
 Tangerine pays a flat rate of 0.15% (at the time of writing) whereas Simplii has a sliding scale based on your account balance:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/simplii-chequing-account-interest-rates.png)
+ ![](attachments/simplii-chequing-account-interest-rates.png)
 
 At most, there’s a 10 basis point difference – or one tenth of a percent. That works out to less than $4 annually. I can live with that.
 
@@ -94,7 +94,7 @@ The first time I logged in to Tangerine, I discovered to my dismay that it doesn
 
 Here’s the first field you see when you log in at Tangerine:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/Log-in.png)
+ ![](attachments/Log-in.png)
 
 So far so good. You can see from the small gray square with the dots inside (in the “Enter Here” field) that LastPass recognizes the log in. It’s ready to go with my Username when I click on it. Terrific.
 
@@ -102,7 +102,7 @@ So far so good. You can see from the small gray square with the dots inside (in 
 
 Once that’s done, you see this:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/Second-window-1024x354.png)
+ ![](attachments/Second-window-1024x354.png)
 
 Two things here.
 
@@ -116,7 +116,7 @@ Second, this is what my spouse likes to call security theater. The answers to al
 
 When you get past this window, here’s what you encounter next:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/third-window.png)
+ ![](attachments/third-window.png)
 
 Now you need to put in a 4-6 digit pin. That’s it – just four to six digits.
 
@@ -142,13 +142,13 @@ The credit card definitely has some attractive features, such as offering 2% cas
 
 ### Tangerine Mastercard
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/money-back-options-1024x828.png)
+ ![](attachments/money-back-options-1024x828.png)
 
 ### PC Financial Mastercard
 
 Our PC Financial Mastercard, on the other hand, optimizes returns on purchases made in their stable of stores. The amount of value you get also depends on the card you have.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/PC-Financial-1024x825.png)
+ ![](attachments/PC-Financial-1024x825.png)
 
 When I did the rough math on our purchases, we are walking away from a few dollars, but not that many given that we do a lot of shopping in the stores covered by the PC Financial Mastercard, and we get 30 points per dollar spent for our particular card. For us, that translates into a lot of free groceries.
 
@@ -158,7 +158,7 @@ To be fair to Tangerine, there is one area where they are leagues ahead of Simpl
 
 It helps you do one of my favorite things – automate saving money, and they offer up a variety of clever options to help you accomplish that. Check these out:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/07/Automate-smart-money-habits-1024x786.png)
+ ![](attachments/Automate-smart-money-habits-1024x786.png)
 
 So smart! I lovelovelove the options here and the reporting that comes along with these options (these are also available on the spending side through the chequing account).
 

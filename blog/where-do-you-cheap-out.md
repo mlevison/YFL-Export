@@ -42,7 +42,7 @@ Back to my story. I went from being a kid who saved every penny and tried to cut
 
 Here’s what I did: I took a few key areas of my life and I up-scaled them.
 
-Whatever my budget for shoes was, I decided to buy fewer pairs and spend more on each individual pair.![black and tan women's dress shoe](http://yflmainprod.wpengine.com/wp-content/uploads/2018/03/black-and-tan-shoes-150x150.jpg)
+Whatever my budget for shoes was, I decided to buy fewer pairs and spend more on each individual pair.![black and tan women's dress shoe](attachments/black-and-tan-shoes-150x150.jpg)
 
 Whatever my budget for clothes was, I bought fewer items but I spent more on each piece.
 
@@ -50,7 +50,7 @@ I went out to dinner more infrequently, but when I did so, I went to very good r
 
 I did not spend any more money than I had previously spent on any of those categories; I just distributed the money differently.
 
-![red women's dress shoes](http://yflmainprod.wpengine.com/wp-content/uploads/2018/03/new-red-shoes-300x300.jpg)The first time I paid more than $100 for a pair of shoes – not boots, *shoes* – I spent twenty minutes pacing the store, having a silent conversation with myself. The clerk must have thought I was mad! It just felt so wrong, so stressful. Even though I had a plan and I knew the money was there for that item in that category, I still got sweaty palms pulling out my wallet. I reminded myself that there is no growth without discomfort.
+![red women's dress shoes](attachments/new-red-shoes-300x300.jpg)The first time I paid more than $100 for a pair of shoes – not boots, *shoes* – I spent twenty minutes pacing the store, having a silent conversation with myself. The clerk must have thought I was mad! It just felt so wrong, so stressful. Even though I had a plan and I knew the money was there for that item in that category, I still got sweaty palms pulling out my wallet. I reminded myself that there is no growth without discomfort.
 
 Slowly, over time, as I bought better quality items and surrounded myself with articles that I lovelovelove instead of just like, I started to feel different. I began to believe that I was worth nice suits, high quality food, and killer shoes. As my feelings about myself shifted, so too did my expectations. Eventually, the results followed.
 

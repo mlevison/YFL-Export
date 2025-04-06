@@ -231,7 +231,7 @@ One last thing: If you’re having trouble sticking with a financial system, the
 
 ## A Recap
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/10/Order-in-which-to-tackle-financial-challenges-1-1024x713.png)
+![](attachments/Order-in-which-to-tackle-financial-challenges-1-1024x713.png)
 
 With this approach, you *will* move the needle in your finances, just like Shannon did.
 

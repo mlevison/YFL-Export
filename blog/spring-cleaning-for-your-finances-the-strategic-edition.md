@@ -44,7 +44,7 @@ Those of you who have a literal garden have probably already done a spring clean
 
 This month, I’m going to walk you through the steps to do the same for your finances. With some effort and a spot of luck, the results will be just as pretty!
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/spring-clean-up-shelley-pauls-6k-C7d6PVgc-unsplash.jpg)
+![](attachments/spring-clean-up-shelley-pauls-6k-C7d6PVgc-unsplash.jpg)
 
 I break down the clean up process into two main areas of focus: Mindset and Financial Systems.
 

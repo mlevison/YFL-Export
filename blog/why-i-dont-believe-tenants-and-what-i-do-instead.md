@@ -1,6 +1,6 @@
 ![Truth](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Truth-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Truth")
 
-[![Truth](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/Truth-300x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/Truth.jpg)It doesn’t take much digging to find complaints about landlords: the guy’s a jerk, doesn’t ever repair anything, doesn’t respond to my calls, only cares about money and so on. Some landlords really do behave badly vis-a-vis their tenants and they certainly deserve our wrath.
+[![Truth](attachments/Truth-300x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/Truth.jpg)It doesn’t take much digging to find complaints about landlords: the guy’s a jerk, doesn’t ever repair anything, doesn’t respond to my calls, only cares about money and so on. Some landlords really do behave badly vis-a-vis their tenants and they certainly deserve our wrath.
 
 Today, though, I want to talk about what it’s like to be a landlord because I think it’s important to add some perspective to the discussion. And for those of you who are landlords, I have a few lessons to share.
 
@@ -54,7 +54,7 @@ I could go on with countless examples on either side, but you get the point. Eve
 
 ## My Strategy Today
 
-I no longer believe tenants when they tell me that they are great people who will honour their obligations. Nor do I disbelieve them. **The big “aha” [![checklist](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/checklist-284x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/checklist.jpg)for me has been to discover that belief has nothing to do with it.** Instead, I have developed a process and policies that move beyond emotion or anything personal. Sure, my gut still plays a role but I no longer let it play a positive role. That is, if the paperwork doesn’t add up, I don’t allow my gut to tempt me into “helping them out”. However, if my gut throws up red flags I do not proceed even if all of the paperwork lines up. I would rather walk away from a good tenant than take on a bad one.
+I no longer believe tenants when they tell me that they are great people who will honour their obligations. Nor do I disbelieve them. **The big “aha” [![checklist](attachments/checklist-284x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/checklist.jpg)for me has been to discover that belief has nothing to do with it.** Instead, I have developed a process and policies that move beyond emotion or anything personal. Sure, my gut still plays a role but I no longer let it play a positive role. That is, if the paperwork doesn’t add up, I don’t allow my gut to tempt me into “helping them out”. However, if my gut throws up red flags I do not proceed even if all of the paperwork lines up. I would rather walk away from a good tenant than take on a bad one.
 
 The way I now go about approving tenants for my Rent to Own business, for example, is simple: I follow my rules.
 

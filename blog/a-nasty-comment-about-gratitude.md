@@ -1,6 +1,6 @@
 ![hands thumbsdown  m](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/hands-thumbsdown-238129-m-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "hands-thumbsdown-238129-m")
 
-Joe really really didn’t like my post about gratitude and he let me know it in no uncertain terms.[![hands-thumbsdown-238129-m](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/hands-thumbsdown-238129-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/hands-thumbsdown-238129-m.jpg)
+Joe really really didn’t like my post about gratitude and he let me know it in no uncertain terms.[![hands-thumbsdown-238129-m](attachments/hands-thumbsdown-238129-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/hands-thumbsdown-238129-m.jpg)
 
 When I began writing publicly two and a half years ago, a colleague cautioned me. “When you put yourself out there you become a target. You’re going to be attacked and some of it will be very personal. You have to be ready for that.” I can honestly say that in all of that time the only communication I’ve had from my readers has been very positive and constructive. Up until now.
 

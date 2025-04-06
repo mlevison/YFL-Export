@@ -1,6 +1,6 @@
 ![Tips](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-826041452-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Tips")
 
-I have a confession to make. I’ll get to it in two seconds. First, a bit of context.![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/10/iStock-826041452-300x200.jpg)
+I have a confession to make. I’ll get to it in two seconds. First, a bit of context.![](attachments/iStock-826041452-300x200.jpg)
 
 This month, I’m focusing on online security for you and your money. In fact, that’s the topic of my [next Women’s Money Group meet-up and live-stream](https://yflmainprod.wpengine.com/events/october-29-2019-womens-money-group-meeting/) on October 29th.
 

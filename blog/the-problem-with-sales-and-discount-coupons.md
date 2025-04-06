@@ -1,6 +1,6 @@
 ![sale tag](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/sale-tag-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "sale tag")
 
-[![sale tag](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/sale-tag-300x191.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/sale-tag.jpg)Shortly before Christmas many moons ago, [Malcolm](https://yflmainprod.wpengine.com/2012/05/my-story-part-i/) burst through our front door with a look of triumph on his face. In his hands he had a mitre saw.
+[![sale tag](attachments/sale-tag-300x191.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/sale-tag.jpg)Shortly before Christmas many moons ago, [Malcolm](https://yflmainprod.wpengine.com/2012/05/my-story-part-i/) burst through our front door with a look of triumph on his face. In his hands he had a mitre saw.
 
 – You won’t believe how much money I saved!
 
@@ -30,7 +30,7 @@ That’s obviously not practical if we’re talking about buying something expen
 
 ## Discount Coupons
 
-[![Discount coupons](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Discount-coupons-300x223.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Discount-coupons.jpg)What about discount coupons, aren’t those a good thing? That depends. If you happen to find some coupons for items you need and you haven’t spent a ton of time doing it, then terrific.
+[![Discount coupons](attachments/Discount-coupons-300x223.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/Discount-coupons.jpg)What about discount coupons, aren’t those a good thing? That depends. If you happen to find some coupons for items you need and you haven’t spent a ton of time doing it, then terrific.
 
 My beef comes from the notion of spending heaps of time chasing coupons and then more time driving around hell’s half acre to save a few dollars. Here’s my question: What is your time worth?
 

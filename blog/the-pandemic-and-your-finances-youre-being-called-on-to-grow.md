@@ -1,6 +1,6 @@
 ![growth ravi-roshan-_AdUs32i0jc-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/growth-ravi-roshan-_AdUs32i0jc-unsplash-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "growth ravi-roshan-_AdUs32i0jc-unsplash")
 
-When the pandemic is over, people will fall into one of two camps: Those who took the time to pandemic-proof their finances and those who did not. ![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/05/growth-ravi-roshan-_AdUs32i0jc-unsplash-1024x575.jpg)
+When the pandemic is over, people will fall into one of two camps: Those who took the time to pandemic-proof their finances and those who did not. ![](attachments/growth-ravi-roshan-_AdUs32i0jc-unsplash-1024x575.jpg)
 
 The latter will face a difficult future.
 
@@ -110,7 +110,7 @@ It’s time for us all to answer the call and take this opportunity to grow.
 
 #### For more information on thriving during the pandemic, click here to access my FREE 83-Page Ultimate Guide.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/05/Ultimate-Guide-cover.png)
+![](attachments/Ultimate-Guide-cover.png)
 
 \*Not their real names
 

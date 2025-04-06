@@ -12,7 +12,7 @@ At the time of the exchange above, September was just around the corner. The sum
 
 And then September disappeared. Did you see it passing or did it speed by in a whirlwind of back-to-school and back-to-the-routine activities?
 
-Here’s the good news: There is still a full quarter remaining in this year. **This is the perfect time to take a deep breath and think about what we want to accomplish with the remaining three months of the year.![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/10/Priorities-iStock-492612002-smaller-version-300x218.jpg)**
+Here’s the good news: There is still a full quarter remaining in this year. **This is the perfect time to take a deep breath and think about what we want to accomplish with the remaining three months of the year.![](attachments/Priorities-iStock-492612002-smaller-version-300x218.jpg)**
 
 Actually, we’re going to get more specific than that. Here are the questions I’d like you to toss into the deep processor that is your brain: **“What, specifically, do I want my money to do for me in the next three months? What are my financial goals?”**
 

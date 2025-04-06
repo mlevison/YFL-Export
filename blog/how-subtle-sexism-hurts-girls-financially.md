@@ -4,11 +4,11 @@ My 14-year-old daughter and I were recently in a long line-up at the grocery sto
 
 As we made our way past a clothing display, my daughter commented on the cool shirts available for toddler boys. Here’s what she saw:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/07/Toddler-boy-shirt-image-1024x434.png)
+ ![](attachments/Toddler-boy-shirt-image-1024x434.png)
 
 As we moved farther along, she saw the other side for girls:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/07/toddler-girl-shirt-1024x915.jpg)
+ ![](attachments/toddler-girl-shirt-1024x915.jpg)
 
 She was not impressed and neither was I.
 
@@ -101,14 +101,14 @@ That’s right – it’s not fair for boys either. Nobody wins in this rigidly 
 
 For the record, here’s the shirt my daughter was wearing when we spotted the toddler display in the grocery store:
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/07/Clarice-t-shirt-300x272.jpg)
+![](attachments/Clarice-t-shirt-300x272.jpg)
 
 You go girls!
 
 PS. I’d love for you to share images of shirts or prints that inspire you. Please share them in the comments below. Let’s get some better messages flowing here!
 
 PSS. This is the shirt my older daughter wore the next day. It’s one of her faves:  
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2021/07/2021-07-08-08.31.04-225x300.jpg)
+ ![](attachments/2021-07-08-08.31.04-225x300.jpg)
 
 When we talked about this post, she said, “I think it’s stupid that there are still “girls” and “boys” sections for young kids. Why not just have a t-shirt section for all kids? If boys want to choose a shirt with a heart on it, they can. Same for girls who love the dinosaur shirts.”
 

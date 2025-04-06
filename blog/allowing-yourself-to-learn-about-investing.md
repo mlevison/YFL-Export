@@ -1,6 +1,6 @@
 ![Head shot of wide-eyed deer in front of green bush](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Deer-haley-phelps-60828-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Deer haley-phelps-60828-unsplash")
 
-They looked like deer in headlights.![Head shot of wide-eyed deer in front of green bush](http://yflmainprod.wpengine.com/wp-content/uploads/2018/07/Deer-haley-phelps-60828-unsplash-300x237.jpg)
+They looked like deer in headlights.![Head shot of wide-eyed deer in front of green bush](attachments/Deer-haley-phelps-60828-unsplash-300x237.jpg)
 
 After delivering the last of the content for the two-hour [Women’s Money Group](https://yflmainprod.wpengine.com/membership/) meet-up on [investing](https://www.eventbrite.ca/e/how-to-invest-and-grow-your-money-women-only-event-tickets-44569050229?aff=ehomecard) basics, I actually said, “You look shell-shocked!” Normally, after the meetings, the room is abuzz with conversations and laughter as the women pack up their things and make their way out. This night was different.
 
@@ -24,7 +24,7 @@ That’s fine. You don’t need to like the material; you just need to get the h
 
 During my research project last fall, in which I talked to women across Canada about their financial strong and weak spots, there was near-unanimous agreement that investing is the weakest link in their financial chain. On the whole, women don’t do much investing, they don’t get it, they fear it, and they’re overwhelmed by it.
 
-![Women with eyes closed and super-imposed image of six inch ruler over her face between her ears](http://yflmainprod.wpengine.com/wp-content/uploads/2018/07/Six-inches-of-real-estate-between-ears-300x131.png)
+![Women with eyes closed and super-imposed image of six inch ruler over her face between her ears](attachments/Six-inches-of-real-estate-between-ears-300x131.png)
 
 “Please teach me how to invest,” was the phrase I heard most often when I asked women what course they would have me teach first. Investing was hands-down the most popular subject.
 

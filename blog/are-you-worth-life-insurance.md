@@ -1,6 +1,6 @@
 ![Life insurance](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Life-insurance-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Life insurance")
 
-I know, it’s a strange way to phrase a question. Shouldn’t I have asked, “Is it worth buying life insurance for yourself?” That would be grammatical – and miss my point.![Life insurance](http://yflmainprod.wpengine.com/wp-content/uploads/2017/03/Life-insurance-229x300.jpg)
+I know, it’s a strange way to phrase a question. Shouldn’t I have asked, “Is it worth buying life insurance for yourself?” That would be grammatical – and miss my point.![Life insurance](attachments/Life-insurance-229x300.jpg)
 
 Someone I know, who is very familiar with my message of the importance of financial protection for women, recently disclosed to me that while her husband has life insurance, she does not. They have young children, they both work and to boot, she is CEO of Home Central. And I do mean CEO: This lady does *everything* for that family, including organizing kids’ activities, scheduling, meal planning and preparation, social planning, in addition to the countless jobs that come with being a home-owner.
 

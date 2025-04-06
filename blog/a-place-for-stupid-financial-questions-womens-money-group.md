@@ -1,4 +1,4 @@
-![women's heads with financial questions in bubbles above](http://yflmainprod.wpengine.com/wp-content/uploads/2018/02/Women-Money-Group-Image-300x125.jpg)Last fall, I talked to a heap of women from coast to coast about their challenges with money: What questions did they have? Where did they feel they need support or answers? What’s working financially and what isn’t?
+![women's heads with financial questions in bubbles above](attachments/Women-Money-Group-Image-300x125.jpg)Last fall, I talked to a heap of women from coast to coast about their challenges with money: What questions did they have? Where did they feel they need support or answers? What’s working financially and what isn’t?
 
 It turns out that one of the most common issues for women is the fact that they have questions, lots of them, but they don’t know where to turn for unbiased answers. The biggest thing, though? They feel their questions are stupid (their word, not mine), so they hesitate to say them out loud. One woman even went so far as to say that she’d need a place where she can ask her questions twice since she might not understand the answer the first time around!
 

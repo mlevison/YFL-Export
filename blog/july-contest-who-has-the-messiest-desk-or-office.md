@@ -1,6 +1,6 @@
 ![messy desk sharon-mccutcheon-tn57JI3CewI-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/messy-desk-sharon-mccutcheon-tn57JI3CewI-unsplash-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "messy desk sharon-mccutcheon-tn57JI3CewI-unsplash")
 
-How would you like to be eligible to win a prize for sending me a photo of a messy desk or office?![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/07/gift-ekaterina-shevchenko-ZLTlHeKbh04-unsplash-300x207.jpg)
+How would you like to be eligible to win a prize for sending me a photo of a messy desk or office?![](attachments/gift-ekaterina-shevchenko-ZLTlHeKbh04-unsplash-300x207.jpg)
 
 Intrigued? I’ll get to the **two contests I’m running this month** in a second. Hang in there.
 
@@ -94,7 +94,7 @@ It’s time to have some fun and do some good at the same time. This month, I’
 
 Does your desk look like this?
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/07/messy-desk-sharon-mccutcheon-tn57JI3CewI-unsplash-200x300.jpg)
+![](attachments/messy-desk-sharon-mccutcheon-tn57JI3CewI-unsplash-200x300.jpg)
 
 If so, congrats! It might just win you a prize. Take a pic and email it to me at doris@yflmainprod.wpengine.com.
 

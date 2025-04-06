@@ -1,6 +1,6 @@
 ![Jar of coins with plant](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Pennies-jar-with-plant-for-blog-post-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Jar of coins with plant")
 
-When I stepped out of the house at 6 am today, I gasped. It was 13 degrees!! (In American-speak, that’s 55 degrees.) The day before, it was 22 headed to 30 degrees (or 86). Welcome to the dying days of summer. (Insert ![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/08/Pennies-jar-with-plant-for-blog-post-300x203.jpg)pained expression.) That’s the bad news.
+When I stepped out of the house at 6 am today, I gasped. It was 13 degrees!! (In American-speak, that’s 55 degrees.) The day before, it was 22 headed to 30 degrees (or 86). Welcome to the dying days of summer. (Insert ![](attachments/Pennies-jar-with-plant-for-blog-post-300x203.jpg)pained expression.) That’s the bad news.
 
 The good news is that it’s time to get back to working on your financial goals at full-speed! And since I’m on a mission this year to help more women invest – more, sooner, faster – I’m going to be talking about investing at this month’s [Women’s Money Group meeting](https://www.eventbrite.ca/e/womens-money-group-meetup-on-investing-understanding-the-factors-that-affect-your-returns-tickets-47517526200?aff=ebdssbdestsearch) *and* I’m going to spend the month ahead breaking down different aspects of investing into simple, understandable chunks.
 

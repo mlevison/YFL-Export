@@ -42,7 +42,7 @@ It used to be that you could develop a great working relationship with “your�
 
 Still, I wondered just how much RBC values her loyalty, which costs her $204 per year for little benefit. I poked around on RBC’s website to see what they offer in terms of chequing accounts and here’s what I found:
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/06/RBC-offerings-1024x698.png)
+![](attachments/RBC-offerings-1024x698.png)
 
 Disregard the VIP Banking account because a) it’s expensive at $30/month; and b) one of its main features is tied to a credit card (I talk about this later in the post).
 
@@ -106,9 +106,9 @@ To ensure that I’m not missing anything, let’s take a look at the Big 5’s 
 
 I created a spreadsheet to compare and contrast the basic chequing account offerings at Canada’s Big 5 banks. Here’s a quick summary of what I found, by bank (at the time of writing).
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/06/First-four-of-big-5-4.png)
+![](attachments/First-four-of-big-5-4.png)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2019/06/RBC-1.png)
+![](attachments/RBC-1.png)
 
 What quickly becomes apparent when you see all the information stacked up together is that the offerings across **the banks are all quite similar**.
 
@@ -185,7 +185,7 @@ Take a look at your accounts and see if you’re paying fees for no real benefit
 
 As for Mia? She realized that one year of savings pretty much pays for a visit for two, with lunch and wine, to Le Nordik, a fabulous local spa. That alone is worth the hour or two it will take her to move things over!
 
-[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](https://yourfinanciallaunchpad.com/4-questions-cheat-sheet/)
+[![Image of Cheat Sheet cover page](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Cheat-Sheet-cover-page-1-qdc6cl407hkwfe9g4kotczrg98wq9qflnb0lcioeeg.png "Image of Cheat Sheet cover page")](attachments/4-questions-cheat-sheet.jpg)
 
 **Want a proven process to help you make smart financial decisions that are in your highest, best interests *every time*?**
 

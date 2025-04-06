@@ -1,6 +1,6 @@
 ![Support concept. Stack of books on wooden desk](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/guidance-iStock-696099962-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "Support concept. Stack of books on wooden desk")
 
-Have you been following my series on my Daily Positive Action Challenge?![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/03/guidance-iStock-696099962-1024x683.jpg)
+Have you been following my series on my Daily Positive Action Challenge?![](attachments/guidance-iStock-696099962-1024x683.jpg)
 
 If you’re not familiar with my challenge, you’ll want to check out my last post called [Inspiration and a Tip to Thrive in Dark Times](https://yflmainprod.wpengine.com/2020/03/inspiration-and-a-tip-to-thrive-in-dark-times/).
 

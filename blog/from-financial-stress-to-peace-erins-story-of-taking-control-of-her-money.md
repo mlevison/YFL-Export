@@ -1,6 +1,6 @@
 ![candles](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/candles-1441889-1280x960-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "candles-1441889-1280×960")
 
-Her Facebook post caught my attention. Erin had started tackling some financial challenges and had finally arrived to a place of peace, with expenses under control and savings in the bank.![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/09/candles-1441889-1280x960-289x300.jpg)
+Her Facebook post caught my attention. Erin had started tackling some financial challenges and had finally arrived to a place of peace, with expenses under control and savings in the bank.![](attachments/candles-1441889-1280x960-289x300.jpg)
 
 That’s really cool, but more important is the list of steps she shared to get herself back in the financial driver’s seat. What did they all have in common? They are all simple actions that are doable by everyone.
 

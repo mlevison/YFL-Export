@@ -1,6 +1,6 @@
 ![hand writing "Tax" on paper, learning what is an RRSP](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Tax-rawpixel-586673-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "RRSPs and TFSAs")
 
-If you open a TFSA and put some money in there, is it invested?![hand writing ](http://yflmainprod.wpengine.com/wp-content/uploads/2018/06/Tax-rawpixel-586673-unsplash-300x223.jpg)
+If you open a TFSA and put some money in there, is it invested?![hand writing ](attachments/Tax-rawpixel-586673-unsplash-300x223.jpg)
 
 Is the money you put into that account guaranteed to grow?
 
@@ -38,7 +38,7 @@ When you make a contribution to an RRSP in the form of a qualified investment, y
 
 If only it were possible to avoid paying tax altogether! Sadly, this isn’t Utopia, so tax must be paid at some point, and in the case of an RRSP, that happens when you withdraw the money. Since the government will use your tax bracket at the time of withdrawal, the idea is to contribute during your high income years to maximize the deduction, and to withdraw when your income is lower, typically at retirement. While you do pay tax, if you legitimately work the system to your advantage, you can save money on the total amount of tax you pay.
 
-![German Sheppard sitting with ears up and eye looking intently forward](http://yflmainprod.wpengine.com/wp-content/uploads/2018/06/german-shepherd-dog-1358676-639x427-300x201.jpg)I want you to think of RRSPs as a house that has a big guard dog at the Exit door. The money goes in easily, but there is a consequence to withdrawing it in the form of taxes and possibly also fees if you have the funds invested in products where the money is locked in for a fixed period of time, like GICs, or back-end loaded mutual funds, where there are costs when you sell too soon.
+![German Sheppard sitting with ears up and eye looking intently forward](attachments/german-shepherd-dog-1358676-639x427-300x201.jpg)I want you to think of RRSPs as a house that has a big guard dog at the Exit door. The money goes in easily, but there is a consequence to withdrawing it in the form of taxes and possibly also fees if you have the funds invested in products where the money is locked in for a fixed period of time, like GICs, or back-end loaded mutual funds, where there are costs when you sell too soon.
 
 ##### Key decision
 

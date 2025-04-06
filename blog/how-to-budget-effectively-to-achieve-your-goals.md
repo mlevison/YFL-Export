@@ -1,6 +1,6 @@
 ![Wooden blocks with text Budget](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/budget-iStock-1089284616-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "Wooden blocks with text Budget")
 
-Let’s have some fun with a quiz. What’s the secret to achieving your financial goals this year? Is it:![](http://yflmainprod.wpengine.com/wp-content/uploads/2020/01/budget-iStock-1089284616-300x200.jpg)
+Let’s have some fun with a quiz. What’s the secret to achieving your financial goals this year? Is it:![](attachments/budget-iStock-1089284616-300x200.jpg)
 
 a) Luck – Some people get all the breaks.
 

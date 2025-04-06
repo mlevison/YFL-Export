@@ -1,6 +1,6 @@
 ![certificate of divorce](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Certificate-of-divorce-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Certificate of divorce")
 
-![certificate of divorce](http://yflmainprod.wpengine.com/wp-content/uploads/2018/04/Certificate-of-divorce-300x200.jpg)Tim and Connie decided to call it quits after more than a decade of marriage. There wasn’t a big crisis; it’s just that they grew apart. While one of them wasn’t entirely happy with the decision, they both came to accept that separation, and ultimately divorce, was inevitable.
+![certificate of divorce](attachments/Certificate-of-divorce-300x200.jpg)Tim and Connie decided to call it quits after more than a decade of marriage. There wasn’t a big crisis; it’s just that they grew apart. While one of them wasn’t entirely happy with the decision, they both came to accept that separation, and ultimately divorce, was inevitable.
 
 There was just one problem: they both wanted to keep the house. Tim suggested that if they couldn’t agree, they should sell the house and split the proceeds. After much discussion, Connie persuaded Tim to let her keep the house because she has the smaller income and probably couldn’t manage to buy another one on her own. She also pointed out that to sell the house would be disruptive for the children. In return, Connie agreed to compromise in other financial areas.
 
@@ -34,19 +34,19 @@ The [S&P/TSX Composite Index](https://www.investopedia.com/terms/s/sp-tsx-compos
 
 After a decade, Tim’s investments would be worth roughly $760,000. (I used [this calculator](http://www.calculator.net/investment-calculator.html?ctype=endamount&ctargetamountv=1000000&cstartingprinciplev=425000&cyearsv=10&cinterestratev=6&ccontributeamountv=0&ciadditionat1=monthly&printit=0&x=54&y=14) to get the results below.)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/04/Tims-contribution-2-from-calculator-dot-net.png)
+![](attachments/Tims-contribution-2-from-calculator-dot-net.png)
 
 It’s true that since he gave up the house, he needed to find a place to live, but the rent for his apartment is roughly comparable to what he was paying for the mortgage, taxes, and insurance. He is taking the time to decide whether or not to buy a house. He may move to a different area of the city to be closer to his work, or he may choose another location altogether if he eventually finds another partner. The point is that for now, he is renting and no longer has maintenance and repair costs.
 
 Now let’s look at Connie’s situation in the matrimonial home. Just to keep things nice and simple, let’s assume that she, too, didn’t need the cash from the divorce settlement and that she invested the entire amount exactly as Tim did, generating the same returns with no additional contributions. That means that her initial investment of $75,000 will be worth roughly $134,000 in ten years.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/04/Connies-contribution.png)
+![](attachments/Connies-contribution.png)
 
 Now what about the house? Remember I said that this example is based on three women? I reached out to one of my favorite Realtors, [Dawn Goodridge](https://topottawahomes.com/en/home.php), for some stats on appreciation rates for the real estate zones in which these women live. The average appreciation rates for the past five years are 1.86%, 2.06%, and 2.76% respectively. Let’s use the latter, 2.76%, for this example to make a point. Assuming that the averages hold steady over the next ten years – even though past performance is no indication of future performance – that means that Connie’s house will be worth roughly $459,525 after ten years.
 
 ## How did they do?
 
-Here’s a quick summary of their results after ten years:![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/04/Table-for-Tim-and-Connie.png)
+Here’s a quick summary of their results after ten years:![](attachments/Table-for-Tim-and-Connie.png)
 
 #### In short, Tim has $167,273 more than Connie after ten years despite the fact that they supposedly started with the same value in assets!
 

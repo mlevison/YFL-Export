@@ -1,6 +1,6 @@
-![hard choice](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/hard-choice-1-1237276-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
+![hard choice](attachments/hard-choice-1-1237276-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/06/hard-choice-1-1237276-295x300.jpg)In [Part I of this series](https://yflmainprod.wpengine.com/2017/06/claims-about-rent-to-own-what-can-you-believe/) on claims made about Rent to Own, I covered the notion that you can make fast cash and don’t have to worry about tenant hassles.
+![](attachments/hard-choice-1-1237276-295x300.jpg)In [Part I of this series](https://yflmainprod.wpengine.com/2017/06/claims-about-rent-to-own-what-can-you-believe/) on claims made about Rent to Own, I covered the notion that you can make fast cash and don’t have to worry about tenant hassles.
 
 Today I’m going to tackle the next items involving protection from risk and finding tenant buyers for the deals.
 

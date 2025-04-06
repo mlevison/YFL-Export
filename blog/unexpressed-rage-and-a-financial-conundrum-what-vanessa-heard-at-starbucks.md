@@ -1,6 +1,6 @@
 ![Vanessa printed on coffee cup at Starbucks](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Vanessa-coffee-cup-at-Starbucks-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Vanessa coffee cup at Starbucks")
 
-Every once in a while, I get an email from a reader that makes me choke on my cup of tea. Today’s noteworthy moment came courtesy of Vanessa, an [award-winning travel blogger](http://www.turnipseedtravel.com/) who also happens to be a member of my team.![Vanessa written on coffee cup at Starbucks](http://yflmainprod.wpengine.com/wp-content/uploads/2018/08/Vanessa-coffee-cup-at-Starbucks-225x300.jpg) Vanessa overhead something at a coffee shop that she simply couldn’t ignore, especially since it was about a topic we had just discussed in my [Women’s Money Group](https://yflmainprod.wpengine.com/membership/).
+Every once in a while, I get an email from a reader that makes me choke on my cup of tea. Today’s noteworthy moment came courtesy of Vanessa, an [award-winning travel blogger](http://www.turnipseedtravel.com/) who also happens to be a member of my team.![Vanessa written on coffee cup at Starbucks](attachments/Vanessa-coffee-cup-at-Starbucks-225x300.jpg) Vanessa overhead something at a coffee shop that she simply couldn’t ignore, especially since it was about a topic we had just discussed in my [Women’s Money Group](https://yflmainprod.wpengine.com/membership/).
 
 Imagine: You’re sitting cheek-by-jowl with complete strangers and try as you might, you c.a.n.n.o.t. block out their conversation. Then it sucks you in.
 
@@ -88,7 +88,7 @@ By taking control of your financial situation, you have the means to create a li
 
 Nothing new can be learned or gained until you believe it’s possible. CW may not feel she’s smart enough to figure it out. Until she shifts that belief, she’s not likely to make much lasting progress, even if financial dude creates a plan for her. If I’ve learned one thing over the past twenty years of studying how money works it’s this: Financial success starts in the six inches of real estate between your ears. You can ask someone to manage your money and you can ask someone to take over your investments, but you can’t ask someone to believe in you for you. That’s something that only you can do.
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/08/Vanessa-drinking-coffee-300x300.jpg)
+![](attachments/Vanessa-drinking-coffee-300x300.jpg)
 
 Trust yourself. **You are more than smart enough to solve any financial challenge in your life.** Sure, you might benefit from guidance, but know that you’re absolutely capable of pulling it off.
 

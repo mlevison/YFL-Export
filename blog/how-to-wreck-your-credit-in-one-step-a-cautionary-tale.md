@@ -1,6 +1,6 @@
 ![Windshield crack](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Windshield-crack-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "SANYO DIGITAL CAMERA")
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2016/11/Windshield-crack-244x300.jpg)
+![](attachments/Windshield-crack-244x300.jpg)
 
 Last week, my business partner and I sat down with a couple who are trying to hold on to their house while addressing significant financial issues. The most pressing problem is that their credit scores have tumbled to the point that the bank may not renew their mortgage. As part of the credit repair process, we looked into a number of options to help them, and one of the areas we explored was the possibility of having their twenty-something son, Jason\*, go on title for a couple of years to help them out. He has a reasonable job, so the expectation was that he could step in while one parent, in particular, addresses major credit issues. When we pulled Jason’s credit report, we were in for a shock: his credit was just as bad as his parents’ credit.
 

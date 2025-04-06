@@ -1,6 +1,6 @@
 ![Argument](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Argument-2-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Argument 2")
 
-It seems my last blog post about [sorting out the right time to combine finances](https://yflmainprod.wpengine.com/2017/10/when-should-you-set-up-a-joint-account-with-your-partner/) – or not – has got people talking. And arguing.![](http://yflmainprod.wpengine.com/wp-content/uploads/2017/10/Argument-2-300x225.jpg)
+It seems my last blog post about [sorting out the right time to combine finances](https://yflmainprod.wpengine.com/2017/10/when-should-you-set-up-a-joint-account-with-your-partner/) – or not – has got people talking. And arguing.![](attachments/Argument-2-300x225.jpg)
 
 That’s the challenge with a single blog post: it’s a quick overview, not a thesis.
 

@@ -34,7 +34,7 @@ Welcome to the negotiation deep end!
 
 There’s just one problem, as Chris points out on [his website](https://www.blackswanltd.com/home):
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/09/CV-summary.png)
+ ![](attachments/CV-summary.png)
 
 Since knowing how to negotiate is key to personal and professional success, here are three of Chris’s negotiation techniques to help you get what you ask for, as well as some of my personal experiences putting them into practice.
 

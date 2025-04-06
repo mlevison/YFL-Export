@@ -1,6 +1,6 @@
 ![Financial to do list](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/List-of-expenses-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "List of expenses")
 
-![Financial to do list](http://yflmainprod.wpengine.com/wp-content/uploads/2018/04/List-of-expenses-253x300.jpg)If a woman is trying to pay off debt, should she let the cleaning lady go? Is that a superfluous cost? What about expensive hockey team fees and equipment costs for her son?
+![Financial to do list](attachments/List-of-expenses-253x300.jpg)If a woman is trying to pay off debt, should she let the cleaning lady go? Is that a superfluous cost? What about expensive hockey team fees and equipment costs for her son?
 
 Are you tempted to say yes in both cases? If so, consider this:
 

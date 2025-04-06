@@ -1,6 +1,6 @@
 ![red wine lana-abie-581814-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/red-wine-lana-abie-581814-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "red wine lana-abie-581814-unsplash")
 
-Sally was frustrated.![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/10/coins-pina-messina-465028-unsplash-225x300.jpg)
+Sally was frustrated.![](attachments/coins-pina-messina-465028-unsplash-225x300.jpg)
 
 She reached out to me because she is worried that she’s not saving enough for retirement, nor does she have much in terms of savings at the moment. She’s roughly fifteen years away from retirement and there are several expenditures looming in the coming year, including replacing aging appliances. “Where will the money come from and how can I possibly be ready for retirement,” she asked?
 
@@ -77,7 +77,7 @@ Food – Sally describes herself as a foodie who loves great quality food. She s
 
 Health – This is my favorite. The number of things I’ve seen on “absolutely essential for health” lists is incredible. I’ve even seen wine on a list! I’m as committed a red wine drinker as it gets – I have been known to cull articles that boast of wine’s medicinal benefits for ammo in discussions with people who are teetotallers – but let’s get real. Without wine, you will not die. (I can’t believe I just said that out loud.)
 
-![](http://yflmainprod.wpengine.com/wp-content/uploads/2018/10/red-wine-lana-abie-581814-unsplash.jpg)
+![](attachments/red-wine-lana-abie-581814-unsplash.jpg)
 
 You get the idea here.
 
