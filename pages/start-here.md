@@ -68,7 +68,7 @@ Then, take **Investing Made Simple** to learn an evidence-based system to build 
 
 One of the most empowering things you can do is to **surround yourself with like-minded women** who are working on their finances and transforming their lives. Together we’re stronger. When you hop into my community, you get weekly tips and strategies, inspiration, and support!
 
- **![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/09/doris-profile-scaled.jpg)
+ **![](attachments/doris-profile-scaled.jpg)
 
 ## Hi there!
 
@@ -88,17 +88,17 @@ I’ve helped thousands of women.
 
 I can help you, too.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/09/YFL_DB_signature_red.png)
+ ![](attachments/YFL_DB_signature_red.png)
 
 **One of the things that has changed for me is that I LOVE managing my finances now.** Really, truly enjoy it.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/10/ann-p.png)
+ ![](attachments/ann-p.png)
 
 Ann P.
 
 Who knew talking about money could be so fun!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/09/patricia-1.jpg)
+ ![](attachments/patricia-1.jpg)
 
 Patricia V
 
@@ -106,7 +106,7 @@ I cannot find words that adequately express how much working with Doris has mean
   
 My husband recently said that he's noticed that I'm really different when I talk about money these days. Not stressed anymore, and \*way\* more confident + optimistic.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/09/eva-1.png)
+ ![](attachments/eva-1.png)
 
 Eva S.
 
@@ -114,7 +114,7 @@ Eva S.
   
 Financial freedom seems very possible and liberating. And this comes from the education and practice that follows from Doris’ steps of learning, reflection, learning, and action!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/09/janeta-1.png)
+ ![](attachments/janeta-1.png)
 
 Janeta K.******
 

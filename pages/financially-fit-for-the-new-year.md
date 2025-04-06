@@ -8,7 +8,7 @@
 
 ### Without leaving you feeling restricted and overwhelmed.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/10/January-pexels-marko-klaric-6408282-1024x781.jpg)
+ ![](attachments/January-pexels-marko-klaric-6408282-1024x781.jpg)
 
 #### Learn to eliminate behaviors that lead to overspending and financial overwhelm, especially at this time of year.
 

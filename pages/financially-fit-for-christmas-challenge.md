@@ -1,4 +1,4 @@
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/11/Financially-Fit-for-Christmas-Challenge-1-1024x576.jpg)
+![](attachments/Financially-Fit-for-Christmas-Challenge-1-1024x576.jpg)
 
 ## Let's Give You More Reasons to Celebrate on New Year's Eve 🎉
 

@@ -1,6 +1,6 @@
 ## Hey there, I’m Doris
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/09/9170330.jpg)
+ ![](attachments/9170330.jpg)
 
 One of my clients, **Diane**, called me her “effing Financial Fairy Godmother.” 😊
 
@@ -46,7 +46,7 @@ So I stepped in to run his business and take care of him.
 
 And that is how life gave me a boot to the head.
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2018/12/Book-image-1-300x200.jpg)I wrote a book about my experience – and that of more than three dozen other divorced and widowed women.
+![](attachments/Book-image-1-300x200.jpg)I wrote a book about my experience – and that of more than three dozen other divorced and widowed women.
 
 It’s called Protect Your Purse, Shared Lessons for Women: Avoid Financial Messes, Stop Emotional Bankruptcies, and Take Charge of Your Money. [You can learn about my book here.](https://yourfinanciallaunchpad.com/book/)
 

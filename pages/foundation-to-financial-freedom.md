@@ -64,7 +64,7 @@ without having to think about money ALL the time.
 
 Introducing
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/09/YFTFF-Course-Logo-1024x367.png)
+ ![](attachments/YFTFF-Course-Logo-1024x367.png)
 
 **A comprehensive, step-by-step course to help you take charge of your finances, strengthen your relationship with money, build your confidence, grow your savings account, and create great options for your future.**
 
@@ -307,7 +307,7 @@ That’s why I design my courses with women in mind and I offer my **coaching pa
 
 #### and my signature No Shame, No Blame, No Judgment approach.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/09/30DayIcon-300x300.png)
+ ![](attachments/30DayIcon-300x300.png)
 
 ## You'll be backed by my 30-Day Satisfaction Guaranteed or Your Money Back Guarantee
 

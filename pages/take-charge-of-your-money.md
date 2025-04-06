@@ -1,6 +1,6 @@
 ## Take Charge of Your Money Course
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/11/TCOYM-logo-1-300x285.png)
+![](attachments/TCOYM-logo-1-300x285.png)
 
 If you’re looking for a better, more effective way to manage your finances, but you’re not sure what to tackle first or how to set up a simple system that works, this course is for you.
 

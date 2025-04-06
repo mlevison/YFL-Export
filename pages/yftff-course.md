@@ -16,7 +16,7 @@
 
 ##### Finally, there’s a proven, fully customized system to address your needs, values, and goals.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/11/IMG_2713-768x1024.jpeg)
+ ![](attachments/IMG_2713-768x1024.jpeg)
 
 ## If you’re here, I know this much about you:
 
@@ -82,7 +82,7 @@ without having to think about money ALL the time.
 
 ## INTRODUCING:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/YFTFF-Course-Logo-1024x367.png)
+ ![](attachments/YFTFF-Course-Logo-1024x367-1.png)
 
 **A comprehensive, step-by-step course to help you take charge of your finances, strengthen your relationship with money, build your confidence, grow your savings account, and create great options for your future.**
 
@@ -137,20 +137,20 @@ If you are not where you want to be with respect to your finances, take this cou
 I went from living in ignorance and fear about my financial situation to taking charge and feeling totally empowered and in control.**  
 The benefits of the course also extend far beyond finances.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/YFTFF-sales-page-edward-cisneros-_H6wpor9mjs-unsplash-2.jpg)
+ ![](attachments/YFTFF-sales-page-edward-cisneros-_H6wpor9mjs-unsplash-2.jpg)
 
 Ann P.
 
 Doris is an amazing coach! Her "no shame, no blame, no judgment" philosophy helped put me at ease to face my finances.**  
 I finally uncovered and released some key subconscious beliefs that had been holding me back for years. I now feel more confident about my earning power and how to manage my money.** And discovering my core values is now changing the way I spend. I highly recommend her course!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/photo-for-sales-page-pexels-christina-morillo-1181686-resized.jpg)
+ ![](attachments/photo-for-sales-page-pexels-christina-morillo-1181686-resized.jpg)
 
 Anne O.
 
 Doris is the best person at explaining financial information that I've seen.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/Christine-Cane-resized.jpg)
+ ![](attachments/Christine-Cane-resized.jpg)
 
 Judith Cane
 
@@ -211,7 +211,7 @@ $ 4,997 or 12 Monthly Payments of $497
 Recently finished the course and it exceeded my expectations! I've been telling everyone about it. **The focus on core values was such an important exercise and journey for me not only in my financial life, but across all categories!**  
 I mapped out the next 10 years on what I call my "Freedom Timeline". **It feels so empowering** to have sight on the dark, dusty corners of my finances and to have hope that the future can look different. This motivates me as I pursue a new career helping others unlock what's keeping them 'stuck'. Excited to go after this beautiful life by design, not life by default!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/amy-hirschi-b3AYk8HKCl0-unsplash-resized.jpg)
+ ![](attachments/amy-hirschi-b3AYk8HKCl0-unsplash-resized.jpg)
 
 Stephanie K.
 
@@ -219,20 +219,20 @@ I did coaching with Doris as part of the course. The coaching felt very personal
 Before the course, I don't think I realized what it takes to establish good patterns, regularly monitor money, set meaningful goals, and engage in regular reflection. I didn't expect it to be personal or emotional.  
 **Doris's emails, modules and coaching have so much value and they make a meaningful impact by making visible things that have been invisible and deeply ingrained, unconsciously shaping our finances for years.**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-daniel-xavier-1239291-resized.jpg)
+ ![](attachments/pexels-daniel-xavier-1239291-resized.jpg)
 
 Elizabeth C.
 
 I knew this financial journey would be transformative, but I didn't imagine this! I f\*\*\*ing love Doris!!! She is my financial fairy godmother! **Doris's money system and her coaching have been a huge part of turning my life around.**  
 She is the exact kind of cheerleader that I need in my life to stay on track towards a new way of being. She also has the ability to challenge me to push myself in a motivating way. I'm thanking the universe for her again.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-andrea-piacquadio-774909.jpg)
+ ![](attachments/pexels-andrea-piacquadio-774909.jpg)
 
 Diane S.
 
 Doris is brilliant at synthesizing info and providing a list of doable action items that yield impactful results. **I've used what I've learned from Doris and her course** - her lessons on mindset and her values-based system - **to pay off five figures of corrosive debt, triple my income and increase my financial literacy exponentially.**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-ketut-subiyanto-4473398-resized.jpg)
+ ![](attachments/pexels-ketut-subiyanto-4473398-resized.jpg)
 
 Eva S.
 
@@ -241,14 +241,14 @@ I would recommend it to anyone because it has left me feeling empowered. **It ch
 and how I make decisions about my money and my time.**  
 Conscious spending and value-based decision-making are powerful tools!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/troy-wade-dYgyzxlHJ58-unsplash-resized.jpg)
+ ![](attachments/troy-wade-dYgyzxlHJ58-unsplash-resized.jpg)
 
 Jean N.
 
 **This course is rocking my world!** The mindset piece was necessary to tackle the last frontier of the 'real estate between my ears'. I am consciously stepping away from the relationship I used to have with money. I think the course is essential and ground-breaking.  
 Working on my values was incredibly useful and empowering. **Now I spend conscientiously, purposefully and without fear.**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-christina-morillo-1181519-resized.jpg)
+ ![](attachments/pexels-christina-morillo-1181519-resized.jpg)
 
 Lynn B.
 
@@ -325,7 +325,7 @@ A video training on how to manage your finances as a couple. Create a friction-f
 
 A recorded interview with an industry expert with tips and strategies to save as much money as possible.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/for-sales-page-ben-kolde-FaPxZ88yZrw-unsplash-1024x1024.jpg)
+ ![](attachments/for-sales-page-ben-kolde-FaPxZ88yZrw-unsplash-1024x1024.jpg)
 
 ## Want the best results? Get a year of coaching, support, and guidance.
 
@@ -393,7 +393,7 @@ I created it so that *you* can achieve financial security, peace of mind, and fr
 
 Hop into the course and let’s get you to financial freedom as soon as possible!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/05/30DayIcon-300x300.png)
+ ![](attachments/30DayIcon-300x300-1.png)
 
 ## You'll be backed by a 30-Day Money Back Guarantee
 

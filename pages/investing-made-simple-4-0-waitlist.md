@@ -1,4 +1,4 @@
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/04/IMS-logo.png)
+![](attachments/IMS-logo.png)
 
 ## Enrollment Opens Soon
 

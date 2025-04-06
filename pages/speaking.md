@@ -60,7 +60,7 @@ Medical Council of Canada
 - Perfection is the killer of dreams. Progress beat perfection any day of the week
 - It’s OK to delegate, but it’s never OK to abdicate financial decision-making
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/09/dorris-blackshirt-blurredbg-768x1024.jpg)
+ ![](attachments/dorris-blackshirt-blurredbg-768x1024.jpg)
 
 If you would like to discuss having Doris speak at your event, please fill out the form below.
 

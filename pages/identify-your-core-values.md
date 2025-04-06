@@ -1,6 +1,6 @@
 ## Identify Your Core Values Course
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/11/core-values-iStock-685774898-300x202.jpg)
+![](attachments/core-values-iStock-685774898-300x202.jpg)
 
 ### Are you looking for an easy, effective way to make decisions about the best use for your money and your time?
 

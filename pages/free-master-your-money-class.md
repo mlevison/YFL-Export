@@ -113,7 +113,7 @@ And you’ll get a handy, practical gift if you show up live for the class, too.
 
 (your personal guide to taking charge of your money, building wealth, and setting yourself free to live your life on *your* terms – without burning yourself out…)
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2024/01/9170330-300x400.jpg)
+ ![](attachments/9170330-300x400.jpg)
 
 **I wish I’d known what I know now back when I was a 30-something widow who’d left her fully funded Doctoral studies to help her sick husband, then was left with $400,000 of inherited debt after his death…**
 

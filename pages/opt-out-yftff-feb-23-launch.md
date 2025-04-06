@@ -1,4 +1,4 @@
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/YFTFF-Course-Logo-1-300x107.png)
+![](attachments/YFTFF-Course-Logo-1-300x107.png)
 
 ## All good!Your preference has been saved.
 

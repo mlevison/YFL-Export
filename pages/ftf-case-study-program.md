@@ -94,7 +94,7 @@ You don’t want to wait another ten years – or more – to be able to *finall
 
 Introducing:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2024/03/UPDATE-FTF-Logo-Feb-2024-for-sales-page-case-study.png)
+ ![](attachments/UPDATE-FTF-Logo-Feb-2024-for-sales-page-case-study.png)
 
 ## The Case Study Edition for Self-Employed Women
 
@@ -341,7 +341,7 @@ That’s why I design my courses with women in mind and I offer the **coaching f
 
 #### with my No Shame, No Blame, No Judgment approach.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/09/30DayIcon-300x300.png)
+ ![](attachments/30DayIcon-300x300.png)
 
 ## Try the Program Risk-Free,with the 30-Day Money Back Guarantee
 

@@ -107,7 +107,7 @@ I have a deep understanding of the challenges – and the opportunities – that
 
 … and what it takes to thrive. **I’ll show you where to start, what to do, and what to avoid.** I hope to see you in the class!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2024/01/9170330.jpg)
+ ![](attachments/9170330-1.jpg)
 
 ## Don’t miss the Free Money Class.
 

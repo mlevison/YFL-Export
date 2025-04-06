@@ -256,21 +256,21 @@ We look forward to welcoming you in the Women’s Financial Freedom Group!
 
 #### Featured in
 
-![Untitled-8](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-8.png)
+![Untitled-8](attachments/Untitled-8.png)
 
-![Untitled-1](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-1.png)
+![Untitled-1](attachments/Untitled-1.png)
 
-![Untitled-2](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-2.png)
+![Untitled-2](attachments/Untitled-2.png)
 
-![Untitled-3](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-3.png)
+![Untitled-3](attachments/Untitled-3.png)
 
-![Untitled-4](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-4.png)
+![Untitled-4](attachments/Untitled-4.png)
 
-![Untitled-5](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-5.png)
+![Untitled-5](attachments/Untitled-5.png)
 
-![Untitled-6](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-6.png)
+![Untitled-6](attachments/Untitled-6.png)
 
-![Untitled-7](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/Untitled-7.png)
+![Untitled-7](attachments/Untitled-7.png)
 
 ## Your Foundation to Financial Freedom is coming soon.
 

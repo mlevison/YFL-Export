@@ -1,4 +1,4 @@
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/07/masterclass-logo.png)
+![](attachments/masterclass-logo.png)
 
 #### If you’ve ever tried to figure out how to deal with a financial challenge or make any kind of positive change where your money is concerned, you know how confusing and overwhelming it can be.
 
@@ -45,7 +45,7 @@ You can start watching it as soon as you get the link!
   
 The work is just beginning, but I’m grateful to have come across Doris and her system! The focus on core values was such an important exercise and journey for me not only in my financial life, but across all categories!"
 
-![](https://yourfinanciallaunchpad.com/wp-content/plugins/elementor/assets/images/placeholder.png)
+![](attachments/placeholder.png)
 
 \- Lisa K.
 
@@ -64,7 +64,7 @@ The work is just beginning, but I’m grateful to have come across Doris and her
   
 Her motto of no shame, no blame, no judgement is such an important concept. I’m grateful to Doris for knowing how important **a safe place to share everything** really is to women like me."
 
-![](https://yourfinanciallaunchpad.com/wp-content/plugins/elementor/assets/images/placeholder.png)
+![](attachments/placeholder.png)
 
 \- Lynn Q.
 
@@ -72,7 +72,7 @@ Her motto of no shame, no blame, no judgement is such an important concept. I’
   
 **I now feel more confident about my earning power and how to manage my money.** And, discovering my Core Values is now changing the way I spend. I highly recommend her offerings."
 
-![](https://yourfinanciallaunchpad.com/wp-content/plugins/elementor/assets/images/placeholder.png)
+![](attachments/placeholder.png)
 
 \- Ann O.
 

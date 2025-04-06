@@ -14,7 +14,7 @@
 
 ##### We won’t just show you the path; we’ll walk it with you.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/11/IMG_2713-768x1024.jpeg)
+ ![](attachments/IMG_2713-768x1024.jpeg)
 
 ## Student Success Stories
 
@@ -24,27 +24,27 @@ I did coaching with Doris as part of the course. The coaching felt very personal
 Before the course, I don't think I realized what it takes to establish good patterns, regularly monitor money, set meaningful goals, and engage in regular reflection. I didn't expect it to be personal or emotional.  
 **Doris's emails, modules and coaching have so much value and they make a meaningful impact by making visible things that have been invisible and deeply ingrained, unconsciously shaping our finances for years.**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-daniel-xavier-1239291-resized.jpg)
+ ![](attachments/pexels-daniel-xavier-1239291-resized.jpg)
 
 Elizabeth C.
 
 I knew this financial journey would be transformative, but I didn't imagine this! I f\*\*\*ing love Doris!!! She is my financial fairy godmother! **Doris's money system and her coaching have been a huge part of turning my life around.**  
 She is the exact kind of cheerleader that I need in my life to stay on track towards a new way of being. She also has the ability to challenge me to push myself in a motivating way. I'm thanking the universe for her again.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-andrea-piacquadio-774909.jpg)
+ ![](attachments/pexels-andrea-piacquadio-774909.jpg)
 
 Diane S.
 
 Doris is brilliant at synthesizing info and providing a list of doable action items that yield impactful results. **I've used what I've learned from Doris and her course** - her lessons on mindset and her values-based system - **to pay off five figures of corrosive debt, triple my income and increase my financial literacy exponentially.**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-ketut-subiyanto-4473398-resized.jpg)
+ ![](attachments/pexels-ketut-subiyanto-4473398-resized.jpg)
 
 Eva S.
 
 Doris is an amazing coach! Her "no shame, no blame, no judgment" philosophy helped put me at ease to face my finances.**  
 I finally uncovered and released some key subconscious beliefs that had been holding me back for years. I now feel more confident about my earning power and how to manage my money.** And discovering my core values is now changing the way I spend. I highly recommend her course!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/photo-for-sales-page-pexels-christina-morillo-1181686-resized.jpg)
+ ![](attachments/photo-for-sales-page-pexels-christina-morillo-1181686-resized.jpg)
 
 Anne O.
 
@@ -114,7 +114,7 @@ I created it so that *you* can achieve financial security, peace of mind, and fr
 
 Hop into the course and let’s get you to financial freedom as soon as possible!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/05/30DayIcon-300x300.png)
+ ![](attachments/30DayIcon-300x300-1.png)
 
 ## You'll be backed by a 30-Day Money Back Guarantee
 

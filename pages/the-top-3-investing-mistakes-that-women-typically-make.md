@@ -18,7 +18,7 @@
 
 ### That’s what my guide is all about.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/06/YFLportrait2020-6736-scaled-1-1.jpg)
+ ![](attachments/YFLportrait2020-6736-scaled-1-1.jpg)
 
 ## Hi, I'm Doris!
 
@@ -50,7 +50,7 @@ Once you learn about the common mistakes, you won’t look at your finances the 
 
 **I promise!**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/04/3-mistakes-mockup.png)
+ ![](attachments/3-mistakes-mockup.png)
 
 #### Complete to form below to grab your FREE copy:
 

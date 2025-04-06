@@ -1,4 +1,4 @@
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/10/FTFF-logo-REC-med-300x162.png)
+![](attachments/FTFF-logo-REC-med-300x162.png)
 
 ## All good!Your preference has been saved.
 

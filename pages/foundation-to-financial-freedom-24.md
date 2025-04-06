@@ -74,7 +74,7 @@ without having to think about money ALL the time.
 
 Introducing
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2024/03/UPDATE-FTF-Logo-Feb-2024-for-sales-page-case-study.png)
+ ![](attachments/UPDATE-FTF-Logo-Feb-2024-for-sales-page-case-study.png)
 
 **A comprehensive, step-by-step program to help you take charge of your finances, eliminate money mindset blocks, build your confidence, grow your savings account, and create great options for your future.**
 
@@ -389,7 +389,7 @@ It doesn’t matter if you combine your finances or you keep everything separate
 
 In the **Money For Two Bonus**, I show you exactly how to do this.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/09/30DayIcon-300x300.png)
+ ![](attachments/30DayIcon-300x300.png)
 
 ## You'll be backed by my 30-Day Satisfaction Guaranteed or Your Money Back Guarantee
 
@@ -642,7 +642,7 @@ All my best,
 
 Doris
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2024/01/9170330-768x1024.jpg)**** 
+ ![](attachments/9170330-768x1024.jpg)**** 
 
 ****
 

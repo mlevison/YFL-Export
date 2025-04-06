@@ -4,7 +4,7 @@
 
 ### 3 Common Approaches That Don’t Work & 3 Proven Strategies That Do – Without Leaving You Feeling Restricted and Resentful
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/Take-Charge-of-Your-Money-Course-image-1024x682.jpg)
+ ![](attachments/Take-Charge-of-Your-Money-Course-image-1024x682.jpg)
 
 #### Learn to spot and stop harmful financial habits that cause the Money Yoyo Effect – money comes in, money goes out …
 

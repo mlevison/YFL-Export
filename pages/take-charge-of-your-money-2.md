@@ -1,8 +1,8 @@
 ## The TAKE CHARGE OF YOUR MONEY Course 💰
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/09/Stock-photo-for-Take-Charge-of-Your-Money-Course-scaled-1-scaled.jpg)
+ ![](attachments/Stock-photo-for-Take-Charge-of-Your-Money-Course-scaled-1-scaled.jpg)
 
-![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/09/Stock-photo-for-Take-Charge-of-Your-Money-Course-scaled-1-1024x682.jpg)
+![](attachments/Stock-photo-for-Take-Charge-of-Your-Money-Course-scaled-1-1024x682.jpg)
 
 **Create a Values-Based Money System to Live Debt-Free, Grow Your Savings, and Develop Great Options for Your Life**
 
@@ -34,7 +34,7 @@ With my system, you have a simple and powerful framework from which to make all 
 
 And the best part? It’s easy to maintain.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2020/09/Photo-of-Doris-for-Courses-page-scaled-1-scaled-1.jpg)
+ ![](attachments/Photo-of-Doris-for-Courses-page-scaled-1-scaled-1.jpg)
 
 **“Doris is the best person at explaining financial information that I’ve seen.”**
 

@@ -10,7 +10,7 @@
 
 ##### In 9 weeks, you can transform your finances with this evidence-based, step-by-step system that is fully customized to your needs, values, and goals.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2022/11/IMG_2713-768x1024.jpeg)
+ ![](attachments/IMG_2713-768x1024.jpeg)
 
 ## If you’re here, I know this much about you:
 
@@ -76,7 +76,7 @@ without having to think about money ALL the time.
 
 ## INTRODUCING:
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/YFTFF-Course-Logo-1024x367.png)
+ ![](attachments/YFTFF-Course-Logo-1024x367-1.png)
 
 **A comprehensive, step-by-step course to help you take charge of your finances, strengthen your relationship with money, build your confidence, grow your savings account, and create great options for your future.**
 
@@ -131,20 +131,20 @@ If you are not where you want to be with respect to your finances, take this cou
 I went from living in ignorance and fear about my financial situation to taking charge and feeling totally empowered and in control.**  
 The benefits of the course also extend far beyond finances.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/YFTFF-sales-page-edward-cisneros-_H6wpor9mjs-unsplash-2.jpg)
+ ![](attachments/YFTFF-sales-page-edward-cisneros-_H6wpor9mjs-unsplash-2.jpg)
 
 Ann P.
 
 Doris is an amazing coach! Her "no shame, no blame, no judgment" philosophy helped put me at ease to face my finances.**  
 I finally uncovered and released some key subconscious beliefs that had been holding me back for years. I now feel more confident about my earning power and how to manage my money.** And discovering my core values is now changing the way I spend. I highly recommend her course!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/photo-for-sales-page-pexels-christina-morillo-1181686-resized.jpg)
+ ![](attachments/photo-for-sales-page-pexels-christina-morillo-1181686-resized.jpg)
 
 Anne O.
 
 Doris is the best person at explaining financial information that I've seen.
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/Christine-Cane-resized.jpg)
+ ![](attachments/Christine-Cane-resized.jpg)
 
 Judith Cane
 
@@ -161,7 +161,7 @@ Canada's Money Coach
 Recently finished the course and it exceeded my expectations! I've been telling everyone about it. **The focus on core values was such an important exercise and journey for me not only in my financial life, but across all categories!**  
 I mapped out the next 10 years on what I call my "Freedom Timeline". **It feels so empowering** to have sight on the dark, dusty corners of my finances and to have hope that the future can look different. This motivates me as I pursue a new career helping others unlock what's keeping them 'stuck'. Excited to go after this beautiful life by design, not life by default!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/amy-hirschi-b3AYk8HKCl0-unsplash-resized.jpg)
+ ![](attachments/amy-hirschi-b3AYk8HKCl0-unsplash-resized.jpg)
 
 Stephanie K.
 
@@ -169,7 +169,7 @@ I did coaching with Doris as part of the course. The coaching felt very personal
 Before the course, I don't think I realized what it takes to establish good patterns, regularly monitor money, set meaningful goals, and engage in regular reflection. I didn't expect it to be personal or emotional.  
 **Doris's emails, modules and coaching have so much value and they make a meaningful impact by making visible things that have been invisible and deeply ingrained, unconsciously shaping our finances for years.**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-daniel-xavier-1239291-resized.jpg)
+ ![](attachments/pexels-daniel-xavier-1239291-resized.jpg)
 
 Elizabeth C.
 
@@ -178,14 +178,14 @@ I would recommend it to anyone because it has left me feeling empowered. **It ch
 and how I make decisions about my money and my time.**  
 Conscious spending and value-based decision-making are powerful tools!
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/troy-wade-dYgyzxlHJ58-unsplash-resized.jpg)
+ ![](attachments/troy-wade-dYgyzxlHJ58-unsplash-resized.jpg)
 
 Jean N.
 
 **This course is rocking my world!** The mindset piece was necessary to tackle the last frontier of the 'real estate between my ears'. I am consciously stepping away from the relationship I used to have with money. I think the course is essential and ground-breaking.  
 Working on my values was incredibly useful and empowering. **Now I spend conscientiously, purposefully and without fear.**
 
- ![](https://yourfinanciallaunchpad.com/wp-content/uploads/2023/02/pexels-christina-morillo-1181519-resized.jpg)
+ ![](attachments/pexels-christina-morillo-1181519-resized.jpg)
 
 Lynn B.
 
