@@ -1,3 +1,4 @@
+# the-best-use-for-your-money
 ![sharon-mccutcheon-552616-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/sharon-mccutcheon-552616-unsplash-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "sharon-mccutcheon-552616-unsplash")
 
 Welcome to my ongoing series on financial literacy. A short while ago, I published a [financial literacy quiz](https://yflmainprod.wpengine.com/2019/01/are-you-financially-literate/) in which I asked a series of questions. Today, we’re discussing the answers to questions 6 and 7 on the best use![](attachments/sharon-mccutcheon-552616-unsplash.jpg)for your money. Here are the questions:

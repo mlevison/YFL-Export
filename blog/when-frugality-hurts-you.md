@@ -1,3 +1,4 @@
+# when-frugality-hurts-you
 ![frugal pexels-breakingpic-3305](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/frugal-pexels-breakingpic-3305-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "frugal pexels-breakingpic-3305")
 
 Is there ever a time when frugality isn’t a virtue?

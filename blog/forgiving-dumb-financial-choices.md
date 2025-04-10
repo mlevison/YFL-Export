@@ -1,3 +1,4 @@
+# forgiving-dumb-financial-choices
 ![embarrassed woman abigail-keenan-27295-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/embarrassed-woman-abigail-keenan-27295-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "embarrassed woman abigail-keenan-27295-unsplash")
 
 If I asked you to make a list of the dumb things you’ve done with money, would it be a two-liner or would you be reaching for a hundred-page booklet?![](attachments/embarrassed-woman-abigail-keenan-27295-unsplash-300x293.jpg)

@@ -1,3 +1,4 @@
+# 4-signs-you-have-a-money-mindset-challenge
 ![mindset challenges pexels-pixabay-209728](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/mindset-challenges-pexels-pixabay-209728-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "mindset challenges pexels-pixabay-209728")
 
 **Why is it that so many smart, capable women end up feeling stuck financially?**

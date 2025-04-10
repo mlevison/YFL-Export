@@ -1,3 +1,4 @@
+# lessons-from-fifty-shades
 Who has read Fifty Shades of Grey? Perhaps I should ask who hasn’t read the book and its sequels. Until recently, I thought I was the only woman around who hadn’t cracked the cover of that ubiquitous trilogy. I had my hair cut; my stylist raved about it. I played on a sports team; the women chuckled openly about ‘rough play’. I reviewed a business file with a colleague; somehow Christian Grey popped up during a discussion of Beacon scores. So I plunged in, reading the three books back to back. One thousand, six hundred and twenty five pages later a light bulb went on: This series contains a very good lesson for women. And no, it’s not what you think.
 
 Let me say for the record that these are not great works of literature. The writing moves from pedestrian to dreadful and occasionally flits into reasonable. This is not a series that will survive on its literary merits.

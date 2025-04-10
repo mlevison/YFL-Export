@@ -1,3 +1,4 @@
+# want-to-win-in-2020-focus-on-small-improvements
 ![](attachments/small-steps-lindsay-henwood-7_kRuX1hSXM-unsplash-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg)
 
 With all the hype around the first month of the new year, you’ve probably heard people encourage you to dream big, shoot for the stars, plan to crush lofty goals in 2020!

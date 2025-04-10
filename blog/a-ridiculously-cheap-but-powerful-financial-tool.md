@@ -1,3 +1,4 @@
+# a-ridiculously-cheap-but-powerful-financial-tool
 ![journals - financial power tools](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/journals-financial-power-tools-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "journals – financial power tools")
 
 Ever heard of Richard Branson?

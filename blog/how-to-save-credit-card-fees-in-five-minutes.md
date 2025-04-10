@@ -1,3 +1,4 @@
+# how-to-save-credit-card-fees-in-five-minutes
 ![credit cards](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/credit-cards-2-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "credit cards 2")
 
 ![credit cards 2](attachments/credit-cards-2-300x225.jpg)Normally I pay my credit card bills in full like clockwork. The bill comes in, I reconcile all of the expenses to ensure that they are legitimate and I set up the payment online. All bills are paid one week before the due date every single time to ensure that the online payment goes through in time, except this past January.

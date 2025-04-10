@@ -1,3 +1,4 @@
+# why-february-is-the-most-important-month-for-your-finances
 ![February elena-mozhvilo-0A3_leMsT98-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/February-elena-mozhvilo-0A3_leMsT98-unsplash-scaled-qdc6ck6g91bq2lvlma1njeg72forgrlvwe7wmyjhc8.jpg "February elena-mozhvilo-0A3_leMsT98-unsplash")
 
 #### If your finances were to deliver a February 1st Update, what would they say?

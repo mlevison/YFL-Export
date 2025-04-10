@@ -1,3 +1,4 @@
+# how-not-to-be-dismal-at-sales-and-why-it-matters-to-you
 ![business card](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/business-card-1237833-640x512-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "business-card-1237833-640×512")
 
 [![business-card-1237833-640x512](attachments/business-card-1237833-640x512-300x240.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/11/business-card-1237833-640x512.jpg)Today I’m going to share two stories to illustrate something that has been bugging me: bad sales people. I’m not just talking about ineffective sales people; I’m referring to flat-out irritating types who drive you to think of a host of uncomplimentary words as you high-tail it out of their store.

@@ -1,3 +1,4 @@
+# do-time-and-experience-on-the-job-make-you-an-expert
 ![ski sign](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/ski-sign-1525674-640x480-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "ski-sign-1525674-640×480")
 
 It was a simple question: “What are you reading at the moment?” The reaction was interesting, and spoke volumes.![](attachments/ski-sign-1525674-640x480.jpg)

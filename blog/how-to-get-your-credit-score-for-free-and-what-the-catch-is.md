@@ -1,3 +1,4 @@
+# how-to-get-your-credit-score-for-free-and-what-the-catch-is
 ![Free game tiles](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/free-game-tiles-1557509-1279x960-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Word “free” in Scrabble tiles")
 
 ![Free game tiles](attachments/free-game-tiles-1557509-1279x960-300x225.jpg)A venture capitalist, doubling as a professor during a week of mini university for high school students, told my daughter the following: When you get something for free, *you* are the product. They were looking into free apps and how companies make money when they give their products away for free. There’s always a catch.

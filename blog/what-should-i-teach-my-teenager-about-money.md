@@ -1,3 +1,4 @@
+# what-should-i-teach-my-teenager-about-money
 ![teenage daughter pexels-julia-m-cameron-4143800](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/teenage-daughter-pexels-julia-m-cameron-4143800-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "teenage daughter pexels-julia-m-cameron-4143800")
 
 What do teenagers need to know about money?

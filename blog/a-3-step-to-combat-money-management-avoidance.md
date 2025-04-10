@@ -1,3 +1,4 @@
+# a-3-step-to-combat-money-management-avoidance
 ![planning noemi-jimenez-Zir_WPh3E7E-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/planning-noemi-jimenez-Zir_WPh3E7E-unsplash-scaled-qdc6cl4afvd0e7u8gsga3w7nntk4ogpm8ive48i360.jpg "planning noemi-jimenez-Zir_WPh3E7E-unsplash")
 
 After more than a decade of helping people with their finances, I’ve noticed a pattern:

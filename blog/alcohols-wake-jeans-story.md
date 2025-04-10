@@ -1,3 +1,4 @@
+# alcohols-wake-jeans-story
 I have yet to find a set of marriage vows that make reference to a Restraining Order. When we marry, we typically promise to love our spouse in sickness and in health, and by illness we might mean all manner of diseases. But surely no one imagines that sickness will descend into destruction and abuse requiring legal intervention.
 
 Jean and Henry were a normal couple for whom everything seemed to progress as you might expect. They were married in the summer of 1972 and had four children in reasonably quick succession. Jean has a Master’s Degree in Environmental Science and Henry was the Vice-Principal at a school in a large city. He was also a well-respected and well-known member of their community. Initially, Jean worked in her field but as her family grew she stepped away from work to care for the children.

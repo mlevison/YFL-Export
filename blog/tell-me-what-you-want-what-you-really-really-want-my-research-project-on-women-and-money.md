@@ -1,3 +1,4 @@
+# tell-me-what-you-want-what-you-really-really-want-my-research-project-on-women-and-money
 ![questionnaire](attachments/questionnaire-3-1236343-1-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
 ![](attachments/questionnaire-3-1236343-300x177.jpg)For a while now, people have been asking me to help them with various aspects of finances. Some have said, “Your next book needs to address *this* topic.” Others have told me, “I need you to help me with this area over here – it’s a struggle.”

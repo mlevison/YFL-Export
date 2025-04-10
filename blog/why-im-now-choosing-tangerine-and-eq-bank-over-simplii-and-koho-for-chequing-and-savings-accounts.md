@@ -1,3 +1,4 @@
+# why-im-now-choosing-tangerine-and-eq-bank-over-simplii-and-koho-for-chequing-and-savings-accounts
 ![tangerine article pexels-jess-bailey-designs-850360](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/tangerine-article-pexels-jess-bailey-designs-850360-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "tangerine article pexels-jess-bailey-designs-850360")
 
 #### If you were to start over and pick all of your key financial accounts from scratch, which would you choose?

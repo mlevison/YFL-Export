@@ -1,3 +1,4 @@
+# debt-repayment-what-a-22-year-old-guy-accomplished-after-one-womens-moneys-group-meeting
 ![Gray Toyota Tacoma](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/toyota-tacoma-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.png "toyota tacoma")
 
 Yes, you read that correctly: a *guy* attended a Women’s Money Group meeting. That was back in December, when I opened the doors to men. The topic was financial goals, the impact of debt, and the importance of debt repayment.

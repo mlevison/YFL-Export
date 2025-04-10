@@ -1,3 +1,4 @@
+# the-art-of-not-giving-up-on-yourself
 ![young plant growing through the ground, hope concept](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-493770526-for-blog-post-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "young plant growing through the ground")
 
 In October, I got an email from a Women’s Money Group member that moved me. Here’s part of what she said\*:

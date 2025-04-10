@@ -1,3 +1,4 @@
+# women-gics-are-they-a-good-fit-2
 ![Financial tic tac toe](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Financial-tic-tac-toe-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Financial tic tac toe")
 
 [![Financial tic tac toe](attachments/Financial-tic-tac-toe-247x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/06/Financial-tic-tac-toe.jpg)This week I’m going to tackle the subject of investments that yield very low returns – the bad – but that are guaranteed – the good. The particular product I’m going to discuss is called a **Guaranteed Investment Certificate** here in Canada, but for my readers from other countries, insert any such product that you have available to you. If you can sign on the dotted line for a guaranteed return and that return is pretty low, then it’s a comparable product.

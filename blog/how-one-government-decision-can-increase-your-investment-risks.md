@@ -1,3 +1,4 @@
+# how-one-government-decision-can-increase-your-investment-risks
 ![Ottawa Water and Sewer Agreement](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Ottawa-Water-and-Sewer-Agreement-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "ottawa-water-and-sewer-agreement")
 
 ![ottawa-water-and-sewer-agreement](attachments/Ottawa-Water-and-Sewer-Agreement-251x300.jpg)If you are the kind of person who shrugs with boredom whenever governments send you an update on policy changes, you might want to take a closer look the next time one lands in your mailbox.

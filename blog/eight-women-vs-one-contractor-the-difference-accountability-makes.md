@@ -1,3 +1,4 @@
+# eight-women-vs-one-contractor-the-difference-accountability-makes
 ![No Excuses](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/No-Excuses-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "No Excuses")
 
 Days before he died, [Malcolm](https://yflmainprod.wpengine.com/2012/05/my-story-part-i/) and I managed to have some quiet time alone in his hospital room.![No Excuses](attachments/No-Excuses-263x300.jpg)

@@ -1,3 +1,4 @@
+# how-to-find-gratitude-on-a-day-from-hell
 [![granite slab](attachments/granite-slab-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/granite-slab.jpg)The phone rang last night as I was helping my youngest daughter do some homework. I didn’t recognize the number so I let it go. We’ve had so many telemarketers bother us during family time lately that I figured the call was just another one of them and I ignored it. Then my cell phone rang. Same number. Someone was really trying to get a hold of me. It was the guy who was supposed to install our new counter tops in a couple of weeks.
 
 – Your granite slab is shattered. The wind knocked it over.

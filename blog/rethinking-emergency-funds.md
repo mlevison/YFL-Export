@@ -1,3 +1,4 @@
+# rethinking-emergency-funds
 ![Emergency Fund Decision Tree](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Emergency-Fund-Decision-Tree-1-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.png "Emergency Fund Decision Tree")
 
 **Does an Emergency Fund serve you well or give you the illusion of security?**

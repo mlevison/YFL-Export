@@ -1,3 +1,4 @@
+# how-do-you-start-over
 ![the end   m](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/the-end-2-1327659-m-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "the-end-2-1327659-m")
 
 When I asked my readers if there is anything in particular they want me to address, a friend replied, “How do you get your life back on track when you’ve been depressed for a couple of years?” [![the-end-2-1327659-m](attachments/the-end-2-1327659-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/04/the-end-2-1327659-m.jpg)

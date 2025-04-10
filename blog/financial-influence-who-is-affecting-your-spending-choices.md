@@ -1,3 +1,4 @@
+# financial-influence-who-is-affecting-your-spending-choices
 ![ripple effect linus-nylund-Q5QspluNZmM-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/ripple-effect-linus-nylund-Q5QspluNZmM-unsplash-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "ripple effect linus-nylund-Q5QspluNZmM-unsplash")
 
 Who are the people you spend the most time with? List them on a piece of paper. These people are potentially a source of financial influence in your life.

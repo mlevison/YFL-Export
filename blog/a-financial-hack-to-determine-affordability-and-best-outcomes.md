@@ -1,3 +1,4 @@
+# a-financial-hack-to-determine-affordability-and-best-outcomes
 ![Can I afford it?](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/affordability-calculation-rawpixel-602154-unsplash-1-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "affordability calculation rawpixel-602154-unsplash")
 
 Most of the time, when we’re considering spending a fair chunk of money on an item or an experience, we look to our bank account or an expert for the answer to the question, “Can we afford it?”![calculator, bank book, pen and money to calculate Can I afford it?](attachments/affordability-calculation-rawpixel-602154-unsplash-1.jpg)

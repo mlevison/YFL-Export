@@ -1,3 +1,4 @@
+# from-financial-stress-to-peace-erins-story-of-taking-control-of-her-money
 ![candles](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/candles-1441889-1280x960-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "candles-1441889-1280×960")
 
 Her Facebook post caught my attention. Erin had started tackling some financial challenges and had finally arrived to a place of peace, with expenses under control and savings in the bank.![](attachments/candles-1441889-1280x960-289x300.jpg)

@@ -1,3 +1,4 @@
+# marriage-and-money-a-wake-up-call-for-married-women
 ![marriage beatriz-perez-moya-M2T1j-6Fn8w-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/marriage-beatriz-perez-moya-M2T1j-6Fn8w-unsplash-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "marriage beatriz-perez-moya-M2T1j-6Fn8w-unsplash")
 
 Hey married ladies, I have a question for you: How has your marriage affected your money?

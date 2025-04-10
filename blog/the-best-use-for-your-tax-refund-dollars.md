@@ -1,3 +1,4 @@
+# the-best-use-for-your-tax-refund-dollars
 ![tax pexels-nataliya-vaitkevich-6863257](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/tax-pexels-nataliya-vaitkevich-6863257-scaled-qdc6ck6g91bq2lvlma1njeg72forgrlvwe7wmyjhc8.jpg "tax pexels-nataliya-vaitkevich-6863257")
 
 If a **$22,000 tax refund landed in your bank account,** what would you do with it?

@@ -1,3 +1,4 @@
+# the-eq-bank-option-for-an-emergency-fund
 ![EQ Bank TFSA](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/EQ-Bank-TFSA-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.png "EQ Bank TFSA")
 
 The options for your **[Emergency Fund](https://yourfinanciallaunchpad.com/rethinking-emergency-funds/)** just got a whole lot better.\*

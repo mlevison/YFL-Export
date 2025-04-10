@@ -1,3 +1,4 @@
+# how-to-get-the-best-deal-for-your-mortgage-renewal
 ![Image of Ollie for blog post on mortgages](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Image-of-Ollie-for-blog-post-on-mortgages-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Image of Ollie for blog post on mortgages")
 
 In my last blog post, I shared a short [financial literacy quiz](https://yflmainprod.wpengine.com/2019/01/are-you-financially-literate/). As promised in the post, I’m tackling each question in turn. The very first question was about mortgage renewal.![](attachments/mortgage-2-300x273.jpg)

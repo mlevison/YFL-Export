@@ -1,3 +1,4 @@
+# thank-you-universe-give-me-more
 ![Thank you](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Thank-you-scaled-qdc6ctku5dolaphy3e3x8c2t0aeflqn79oqrfq5jm0.jpg "Thank you")
 
 [![Thank you](attachments/Thank-you-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2013/04/Thank-you.jpg)When someone wants to do something nice for you or give you something, do you ever find yourself arguing with them or politely turning them down? Do you ever say, “No, it’s OK, I’m fine. Thanks anyway.” If you have ever done that, this message is for you.

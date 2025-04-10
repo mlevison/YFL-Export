@@ -1,3 +1,4 @@
+# how-much-money-to-allocate-to-each-category
 ![percentages pexels-karolina-grabowska-5625108](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/percentages-pexels-karolina-grabowska-5625108-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "percentages pexels-karolina-grabowska-5625108")
 
 **How much money should you allocate to each category in your personal finances?**

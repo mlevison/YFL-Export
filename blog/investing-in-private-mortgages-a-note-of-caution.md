@@ -1,3 +1,4 @@
+# investing-in-private-mortgages-a-note-of-caution
 ![mortgage pexels-andrea-piacquadio-3760067](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/mortgage-pexels-andrea-piacquadio-3760067-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "mortgage pexels-andrea-piacquadio-3760067")
 
 If I were to tell you that you can earn 12% quite consistently by investing in private mortgages, what would you say?

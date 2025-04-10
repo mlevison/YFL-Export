@@ -1,3 +1,4 @@
+# a-tale-of-loss-aversion-and-sunk-costs-mia-and-her-cappuccino-maker
 ![](attachments/Shea-coffee-maker-back-on-countertop-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg)
 
 ![](attachments/Shea-coffee-maker-back-on-countertop-for-blog-post-2.jpg)

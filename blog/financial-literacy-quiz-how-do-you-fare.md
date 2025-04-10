@@ -1,3 +1,4 @@
+# financial-literacy-quiz-how-do-you-fare
 ![literacy quiz winner](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/literacy-quiz-winner-qdc6ctku5dolaphy3e3x8c2t0aeflqn79oqrfq5jm0.jpg "literacy quiz winner")
 
 At my book launch for *[Protect Your Purse, Shared Lessons For Women: Avoid Financial Messes, Stop Emotional Bankruptcies and Take Charge of ![](attachments/literacy-quiz-winner-199x300.jpg)Your Money](https://yflmainprod.wpengine.com/book/),* I gave attendees a financial literacy quiz with the promise of free books for the best and worst mark. Mostly, I wanted my friends and supporters to have fun with it, but I also wanted to raise awareness about key areas of financial fitness, some of which I discuss in my book.

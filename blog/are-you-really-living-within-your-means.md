@@ -1,3 +1,4 @@
+# are-you-really-living-within-your-means
 ![mason jar savings bank](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/mason-jar-savings-bank-1311765-639x451-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "mason-jar-savings-bank-1311765-639×451")
 
 Jack and Lee-Ann\* are careful with their money. They pay all their bills on time, make more than the minimum credit card payments every month and they have a few dollars left over, which they keep in a savings account. Are they living within their means?

@@ -1,3 +1,4 @@
+# my-story-part-i
 My friend Bona dropped by for a visit recently and in the midst of our usual go-everywhere conversation she shared a few thoughts.
 
 – I’ve finally read all your blog posts. It’s good stuff and I’m thinking about all the women I want to send it to. (Pause.) But here’s the thing: I don’t think there’s enough emotion. You tell the stories well but they’re very matter-of-fact; I don’t get a good sense of the range of emotions these women must have felt as they went through their ordeals. Emotions are important.

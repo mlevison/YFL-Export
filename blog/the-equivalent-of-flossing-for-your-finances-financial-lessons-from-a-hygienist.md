@@ -1,3 +1,4 @@
+# the-equivalent-of-flossing-for-your-finances-financial-lessons-from-a-hygienist
 ![flossing blog pexels-andrea-piacquadio-3756168](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/flossing-blog-pexels-andrea-piacquadio-3756168-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "flossing blog pexels-andrea-piacquadio-3756168")
 
 I don’t know about you, but when I head over to the dentist’s office, I don’t expect to walk away with a financial lesson, other than a reminder of how expensive dental visits are.

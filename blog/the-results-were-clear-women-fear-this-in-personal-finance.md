@@ -1,3 +1,4 @@
+# the-results-were-clear-women-fear-this-in-personal-finance
 ![women fear this blog post pexels-lilartsy-1194775](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/women-fear-this-blog-post-pexels-lilartsy-1194775-scaled-qdc6cl4afvd0e7u8gsga3w7nntk4ogpm8ive48i360.jpg "women fear this blog post pexels-lilartsy-1194775")
 
 **I want to chat about an aspect of personal finances that causes women THE most stress and concern.**

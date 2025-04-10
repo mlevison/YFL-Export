@@ -1,3 +1,4 @@
+# the-difference-a-good-morning-routine-makes
 ![beautiful view of Lake Muskoka](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/2020-08-19-12.30.30-scaled-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "2020-08-19 12.30.30")
 
 Today, I want to share a story about what happened to my progress, financial and otherwise, when I stopped paying attention to my morning routine.

@@ -1,3 +1,4 @@
+# the-pandemic-and-your-finances-youre-being-called-on-to-grow
 ![growth ravi-roshan-_AdUs32i0jc-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/growth-ravi-roshan-_AdUs32i0jc-unsplash-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "growth ravi-roshan-_AdUs32i0jc-unsplash")
 
 When the pandemic is over, people will fall into one of two camps: Those who took the time to pandemic-proof their finances and those who did not. ![](attachments/growth-ravi-roshan-_AdUs32i0jc-unsplash-1024x575.jpg)

@@ -1,3 +1,4 @@
+# the-importance-of-girl-time
 ![DSC](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/DSC00664-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "DSC00664.jpg")
 
 So far I have interviewed a few dozen women for this blog and while they have all had different[![DSC00664](http://yflmainprod.wpengine.com/wp-content/uploads/2013/04/DSC00664_thumb.jpg "DSC00664")](attachments/DSC00664.jpg) experiences of loss or divorce, there is a common thread to their lists of advice for women. In short, they recommend that you spend more time with your girlfriends and nurture those friendships.

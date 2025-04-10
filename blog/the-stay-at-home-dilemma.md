@@ -1,3 +1,4 @@
+# the-stay-at-home-dilemma
 Even though my blog is only a few weeks old, I have already received a lot of terrific feedback from women about my book project. I want to share one email with you because it raises an issue that that I’ve thought about deeply since becoming a mom and it’s a topic that I intend to address in depth in my book.
 
 P. from Toronto wrote the following:

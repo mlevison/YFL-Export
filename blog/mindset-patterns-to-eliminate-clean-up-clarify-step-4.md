@@ -1,3 +1,4 @@
+# mindset-patterns-to-eliminate-clean-up-clarify-step-4
 ![words pexels-pixabay-278887](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/words-pexels-pixabay-278887-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "words pexels-pixabay-278887")
 
 For the past two weeks, my community has been hard at work decluttering spaces that cause stress.

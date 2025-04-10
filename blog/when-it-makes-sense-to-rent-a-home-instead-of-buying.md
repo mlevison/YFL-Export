@@ -1,3 +1,4 @@
+# when-it-makes-sense-to-rent-a-home-instead-of-buying
 ![badger](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/badger-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "badger")
 
 When I published my last blog post on the fact that it [does not always make sense to keep the matrimonial home](https://yflmainprod.wpengine.com/2018/04/not-all-dollars-are-equal-in-divorce-settlements/) in a divorce, I received emails from people heading into a divorce for whom that issue was timely. Should they![](attachments/badger-300x173.jpg) rent or buy another home, they wanted to know?

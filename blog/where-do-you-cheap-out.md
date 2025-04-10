@@ -1,3 +1,4 @@
+# where-do-you-cheap-out
 ![new-red-shoes](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/new-red-shoes-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "new-red-shoes")
 
 Have you ever done this: You sit down for a restaurant meal and the waiter hands you the menu, asking if you’d like something to drink. “Water would be great, thank you,” you respond. Then you look over the food offerings with one eye on the items and the other on the price. Your choice of what to order is not driven by what you’d really like to eat that evening. That would cost $42 – an outrageous price for a meal! Instead, you settle for something common, the chicken, with a much more reasonable price tag. When the waiter returns to take your order, you decline a beverage because they’re too expensive. Ditto for dessert. Publicly, you state that you’re full and don’t feel like drinking.

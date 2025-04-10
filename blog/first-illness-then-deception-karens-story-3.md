@@ -1,3 +1,4 @@
+# first-illness-then-deception-karens-story-3
 Karen’s plan was fairly straightforward: Find satisfying work, meet a great guy, have two children and live a joyful life. During her twenties it seemed that she was on the right track. Things looked good.
 
 Don entered Karen’s life when she was in her mid-twenties. He was good looking, charismatic and charming. The problem was that he had not yet settled on his career path, and within their first few years together he decided to return to college to further his training. While he focused on his studies, Karen worked and bought a house with her brother. It was a great arrangement: Karen lived on the main floor and her brother had the basement to himself. Don eventually moved in with Karen along with his daughter from a previous marriage. While he paid some rent, Karen carried the majority of the living costs but that was fine by her because she was very supportive of Don’s efforts to reinvent himself.

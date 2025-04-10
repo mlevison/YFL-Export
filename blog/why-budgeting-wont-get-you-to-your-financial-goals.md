@@ -1,3 +1,4 @@
+# why-budgeting-wont-get-you-to-your-financial-goals
 ![budgeting pexels-rodnae-productions-7491011](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/budgeting-pexels-rodnae-productions-7491011-scaled-qdc6cl4afvd0e7u8gsga3w7nntk4ogpm8ive48i360.jpg "budgeting pexels-rodnae-productions-7491011")
 
 You know that feeling when you think you’re doing everything right with your finances, but you’re still not accomplishing your goals?

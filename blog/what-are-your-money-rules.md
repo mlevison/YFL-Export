@@ -1,3 +1,4 @@
+# what-are-your-money-rules
 ![Chalk board with three lines for rules](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-808471534-for-blog-post-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Chalk board with rules writen")
 
 Remember when you were growing up and life seemed to be full of rules? Take off your shoes before coming into the house. Don’t speak with your mouth full. Don’t use your brother as a stepping stool (at least not when mom ![Chalk board with three lines for rules](attachments/iStock-808471534-for-blog-post.jpg)is around). Look twice before crossing the road. Finish your vegetables before having dessert. Be home before midnight.

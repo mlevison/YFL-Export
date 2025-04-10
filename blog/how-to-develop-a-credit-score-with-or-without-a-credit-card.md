@@ -1,3 +1,4 @@
+# how-to-develop-a-credit-score-with-or-without-a-credit-card
 ## Your Foundation to Financial Freedom is coming soon.
 
 Please complete the form to add your name to the wait list. We’ll let you know as soon as the course is released!

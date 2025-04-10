@@ -1,3 +1,4 @@
+# the-genius-of-financial-simplicity
 ![Mark tool chest labels](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Mark-tool-chest-labels-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Mark tool chest labels")
 
 ![Mark tool chest labels](attachments/Mark-tool-chest-labels-225x300.jpg)When Mark and I moved in together after buying our first house, it became apparent that we would need to purge. Do we keep his sofa or mine? (Both at first, but then I sold his to a neighbour during a garage sale. He discovered this when he was asked to help move it to her house, but that’s another story.)

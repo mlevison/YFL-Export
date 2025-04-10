@@ -1,3 +1,4 @@
+# do-you-know-his-passwords
 ![Computer security or safety concept. Laptop keyboard with lock and chain.](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-499123970-for-website-qdc6csmzyjnaz3jb8vpanubcewj2e1jgxk39yg6xs8.jpg "Computer security or safety concept. Laptop keyboard with lock a")
 
 I recently spent some time with a few friends who wanted to pick my brain about my blog. They have been reading my posts and thinking about their own lives. We ended up asking a few uncomfortable questions. There were ![Computer security or safety concept. Laptop keyboard with lock and chain.](attachments/iStock-499123970-for-website-300x225.jpg)sombre looks when I asked if they knew their husbands’ passwords. The short answer is no. If something were to happen to their spouse, they wouldn’t have the faintest idea how to get into his files or even know what to look for.

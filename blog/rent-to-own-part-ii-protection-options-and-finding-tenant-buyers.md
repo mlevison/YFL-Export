@@ -1,3 +1,4 @@
+# rent-to-own-part-ii-protection-options-and-finding-tenant-buyers
 ![hard choice](attachments/hard-choice-1-1237276-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
 ![](attachments/hard-choice-1-1237276-295x300.jpg)In [Part I of this series](https://yflmainprod.wpengine.com/2017/06/claims-about-rent-to-own-what-can-you-believe/) on claims made about Rent to Own, I covered the notion that you can make fast cash and don’t have to worry about tenant hassles.

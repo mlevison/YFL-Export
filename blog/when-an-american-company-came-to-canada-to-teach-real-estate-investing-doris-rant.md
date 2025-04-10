@@ -1,3 +1,4 @@
+# when-an-american-company-came-to-canada-to-teach-real-estate-investing-doris-rant
 ![American flag](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/American-flag-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "American flag")
 
 Dear American company,[![American flag](attachments/American-flag-203x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/American-flag.jpg)

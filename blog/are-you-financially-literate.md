@@ -1,3 +1,4 @@
+# are-you-financially-literate
 ![Skill concept. Hand holding can watering small patch of grass with sign reading "skill"](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-657955822-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Skill concept. Fresh and green grass on wood background")
 
 When people learn that I am a financial literacy educator, they typically respond in one of two ways:![Skill concept. Hand holding can watering small patch of grass with sign reading "skill"](attachments/iStock-657955822-1024x726.jpg)

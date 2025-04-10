@@ -1,3 +1,4 @@
+# the-1-lesson-i-learned-while-dealing-with-400000-of-debt
 ![doris-belland-book-mockup_book-+-reader](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/doris-belland-book-mockup_book-reader-scaled-qg1incn7ynq1tx078vqam6ggvos5gcdrkmvhdlkps8.jpg "doris-belland-book-mockup_book-+-reader")
 
 My new book *Protect Your Purse, Shared Lessons for Women: Avoid Financial Messes, Stop Emotional Bankruptcies and Take Charge of Your Money* has just been published!

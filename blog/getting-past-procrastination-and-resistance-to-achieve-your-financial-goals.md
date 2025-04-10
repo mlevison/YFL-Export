@@ -1,3 +1,4 @@
+# getting-past-procrastination-and-resistance-to-achieve-your-financial-goals
 ![procrastination pedro-da-silva-unEmGQqdO7Q-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/procrastination-pedro-da-silva-unEmGQqdO7Q-unsplash-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "procrastination pedro-da-silva-unEmGQqdO7Q-unsplash")
 
 Shawna just couldn’t get going on her to-do list. She had financial goals and she had an idea of what she should be doing, but she couldn’t stop procrastinating.

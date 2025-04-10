@@ -1,3 +1,4 @@
+# the-money-smart-students-program
 ![Money-Smart Pilot Program Logo rectangle](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Money-Smart-Pilot-Program-Logo-rectangle-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.png "Money-Smart Pilot Program Logo rectangle")
 
 If you could turn back the clock and talk to your 16-year-old self, what would you tell her or him about money?

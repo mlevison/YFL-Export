@@ -1,3 +1,4 @@
+# what-to-do-when-the-stock-market-is-turbulent
 ![turbulence m-W7wEqy01K3s-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/turbulence-m-W7wEqy01K3s-unsplash-scaled-qdc6cl4afvd0e7u8gsga3w7nntk4ogpm8ive48i360.jpg "turbulence m-W7wEqy01K3s-unsplash")
 
 This year, so far, hasn’t been pretty for the stock market. It has experienced turbulence, to put it mildly.

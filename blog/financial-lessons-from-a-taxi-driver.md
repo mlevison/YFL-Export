@@ -1,3 +1,4 @@
+# financial-lessons-from-a-taxi-driver
 ![yellow taxi](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/taxi-jordan-andrews-415989-unsplash-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "taxi-jordan-andrews-415989-unsplash")
 
 ![yellow taxi](attachments/taxi-jordan-andrews-415989-unsplash-244x300.jpg)I don’t know what it is about me and taxi drivers. Whenever I’m in a car alone with them – something that happens infrequently – they tell me their life story.

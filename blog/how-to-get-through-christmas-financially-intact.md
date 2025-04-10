@@ -1,3 +1,4 @@
+# how-to-get-through-christmas-financially-intact
 ![Christmas shopping](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Christmas-shopping-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Shopping for christmas goodies")
 
 When I opened my front door this morning I was greeted by a mini mountain of flyers for Black Friday. In case you’re wondering, it would appear that all of North America is on sale today. [![Shopping for christmas goodies](attachments/Christmas-shopping-225x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/Christmas-shopping.jpg)There are so many pretty things to buy and boy-oh-boy is it ever tempting given the low prices. How can you resist? After all, you’ve got all those people to buy for!

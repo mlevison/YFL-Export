@@ -1,3 +1,4 @@
+# if-you-won-the-lottery-would-you-keep-your-husband
 ![Suitcase full of money](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Suitcase-full-of-money-qdc6ctku5dolaphy3e3x8c2t0aeflqn79oqrfq5jm0.jpg "Suitcase full of money")
 
 Jennifer\* is not a happy soul. She has faced a heap of challenges at work and her extended family has been – how shall I say this – *difficult*. To make matters worse, she’s married to a guy who [![Unhappy woman](attachments/Unhappy-woman-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/07/Unhappy-woman.jpg)doesn’t treat her very well. Just to be clear, he’s not verbally or physically abusive, he just doesn’t pay much attention to her. It doesn’t help that his work takes him away from the family home an awful lot, leaving Jennifer to care for their young children and manage the household pretty much alone. Whenever Jennifer speaks about him or her marriage, it’s clear that she is very unhappy.

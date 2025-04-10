@@ -1,3 +1,4 @@
+# moving-through-fear-to-resilience
 ![driving smaller file](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/driving-smaller-file-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "driving smaller file")
 
 [![driving smaller file](attachments/driving-smaller-file-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/driving-smaller-file.jpg)Has fear ever stopped you from moving forward with a project? Have you ever kept quiet at a key moment for fear of sounding foolish or said “no thanks” to an opportunity because you were afraid that you might fail?

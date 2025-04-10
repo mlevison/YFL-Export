@@ -1,3 +1,4 @@
+# how-subtle-sexism-hurts-girls-financially
 ![toddler girl shirt](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/toddler-girl-shirt-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "toddler girl shirt")
 
 My 14-year-old daughter and I were recently in a long line-up at the grocery store, waiting for our turn to check out.

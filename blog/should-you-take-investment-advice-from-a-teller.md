@@ -1,3 +1,4 @@
+# should-you-take-investment-advice-from-a-teller
 ![Notepad with investment opportunities on office wooden table.](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-496848242-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Notepad with investment opportunities on office wooden table.")
 
 In Part 3 of my [Are You Financially Literate?](https://yflmainprod.wpengine.com/2019/01/are-you-financially-literate/) series, we’re tackling taking investment advice from a bank teller: Yea or nay?![Notepad with investment opportunities on office wooden table.](attachments/iStock-496848242-1024x682.jpg)

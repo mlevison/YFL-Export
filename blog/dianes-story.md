@@ -1,3 +1,4 @@
+# dianes-story
 Diane and John were an impressive couple living what appeared to be a great life. She had a management-track job with a large, IT company and he was a successful academic researcher. Both had strong salaries and promising prospects. The path ahead, both personally and professionally, appeared to be golden.
 
 For the first six years they lived together as a common-law couple but despite outward appearances, all was not well. Diane soon discovered that John had multiple lovers. She comes from a deeply religious background in which commitment and forgiveness are central tenets of her faith so she stayed with him. Her willingness to turn the other cheek ended the day that she discovered that he had proposed to one of his lovers. She asked John to leave.

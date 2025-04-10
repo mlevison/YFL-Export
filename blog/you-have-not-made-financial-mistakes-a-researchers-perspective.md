@@ -1,3 +1,4 @@
+# you-have-not-made-financial-mistakes-a-researchers-perspective
 ![financial mistakes pexels-george-becker-374918](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/financial-mistakes-pexels-george-becker-374918-scaled-e1623339605483-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "financial mistakes pexels-george-becker-374918")
 
 Raise your hand if you’ve ever made financial mistakes?

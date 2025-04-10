@@ -1,3 +1,4 @@
+# money-talk-the-effect-of-having-men-in-the-room
 ![Audience Applauding Speaker After Conference Presentation](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Events-image-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "Audience Applauding Speaker After Conference Presentation")
 
 Does having a guy in the room make a difference to women’s comfort levels and willingness to talk about money?

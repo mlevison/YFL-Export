@@ -1,3 +1,4 @@
+# tackling-debt-the-step-many-people-omit
 ![credit-cards-2](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/credit-cards-2-1-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "credit-cards-2")
 
 ![](attachments/credit-cards-2-300x225-1.jpg)Joe and Sally are a couple in their early thirties. They have university degrees and each have good, professional jobs. As a family, they have a strong, six-figure income and no dependants. Despite their income, they are awash in debt, much of it [corrosive: credit card and line of credit debt](https://yflmainprod.wpengine.com/2017/02/are-you-really-living-within-your-means/). When I first met them, they had low [credit scores](https://yflmainprod.wpengine.com/2017/03/ladies-whats-your-score/) and multiple payment delinquencies on their credit bureau reports. They were eager to turn their situation around, wipe out their debts, and buy their first house.

@@ -1,3 +1,4 @@
+# four-numbers-to-financial-freedom-in-order
 ![beach-1361903-1280x960 (1)](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/beach-1361903-1280x960-1-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "beach-1361903-1280×960 (1)")
 
 ![](attachments/beach-1361903-1280x960-1-1024x615.jpg)Would you believe me if I told you that financial freedom boils down to nailing four numbers?

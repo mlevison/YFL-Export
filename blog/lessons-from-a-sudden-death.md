@@ -1,3 +1,4 @@
+# lessons-from-a-sudden-death
 ![death pexels-gratisography-2009](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/death-pexels-gratisography-2009-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "death pexels-gratisography-2009")
 
 Less than two weeks ago, I lost a friend, AG, to a freak accident. He was 48 years old.

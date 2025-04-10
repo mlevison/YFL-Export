@@ -1,3 +1,4 @@
+# step-1-for-your-money-plan-start-with-the-goal
 ![Vision Board](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Vision-Board-qdc6ctku5dolaphy3e3x8c2t0aeflqn79oqrfq5jm0.jpg "Vision Board")
 
 [![Vision Board](attachments/Vision-Board-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/07/Vision-Board.jpg)Picture this: It’s time for a holiday, time to get out of this place and get some serious R&R for a few weeks. You pack up the car, give the kids every known electronic gadget and head out. A few minutes later, when everyone is settled, you pull out the GPS and stare at the screen. Nothing shows up. You’ve set everything in motion, you’re on your way but you have no idea where you’re going. No problem, you’re definitely up for an adventure. You punch in “Don’t Know” as your destination into Google maps. It pops up a tavern in Maryland. Hmm, not quite what you had in mind. So you try a few other options:

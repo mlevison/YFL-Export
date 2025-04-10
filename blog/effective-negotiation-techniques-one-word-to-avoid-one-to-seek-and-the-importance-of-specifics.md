@@ -1,3 +1,4 @@
+# effective-negotiation-techniques-one-word-to-avoid-one-to-seek-and-the-importance-of-specifics
 ![Negotiation](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-666823506-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "Young businesswoman going to make handshake with a businessman")
 
 Let’s bypass negotiation techniques for a second and start with this: When was the last time you negotiated for something you wanted?

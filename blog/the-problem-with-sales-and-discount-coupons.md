@@ -1,3 +1,4 @@
+# the-problem-with-sales-and-discount-coupons
 ![sale tag](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/sale-tag-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "sale tag")
 
 [![sale tag](attachments/sale-tag-300x191.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/12/sale-tag.jpg)Shortly before Christmas many moons ago, [Malcolm](https://yflmainprod.wpengine.com/2012/05/my-story-part-i/) burst through our front door with a look of triumph on his face. In his hands he had a mitre saw.

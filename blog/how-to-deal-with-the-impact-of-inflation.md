@@ -1,3 +1,4 @@
+# how-to-deal-with-the-impact-of-inflation
 ![inflation maria-lin-kim-8RaUEd8zD-U-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/inflation-maria-lin-kim-8RaUEd8zD-U-unsplash-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "inflation maria-lin-kim-8RaUEd8zD-U-unsplash")
 
 **Have you seen what’s going on with prices these days?**

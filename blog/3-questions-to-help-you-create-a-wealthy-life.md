@@ -1,3 +1,4 @@
+# 3-questions-to-help-you-create-a-wealthy-life
 ![_1030649](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/1030649-qdc6ck6g91bq2lvlma1njeg72forgrlvwe7wmyjhc8.jpg "_1030649")
 
 A while back, I asked my newsletter readers this question:

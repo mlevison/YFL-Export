@@ -1,3 +1,4 @@
+# tfsas-and-rrsps-are-not-investments
 ![hand writing "Tax" on paper, learning what is an RRSP](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Tax-rawpixel-586673-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "RRSPs and TFSAs")
 
 If you open a TFSA and put some money in there, is it invested?![hand writing ](attachments/Tax-rawpixel-586673-unsplash-300x223.jpg)

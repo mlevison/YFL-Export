@@ -1,3 +1,4 @@
+# ask-this-question-to-stay-on-track-financially-this-christmas
 ![christmas chad-madden-ctdfK-0UKnk-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/christmas-chad-madden-ctdfK-0UKnk-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "christmas chad-madden-ctdfK-0UKnk-unsplash")
 
 What’s the best way to approach the Christmas season if you want to ensure you come out the other side without doing damage to your finances yet still having the kind of experiences you enjoy?

@@ -1,3 +1,4 @@
+# how-to-spend-your-money-a-counterintuitive-approach
 ![woman spending pexels-antoni-shkraba-6207699](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/woman-spending-pexels-antoni-shkraba-6207699-scaled-qh6y8t2klphr50gctehdzba292urtik7yd8ju1tkzs.jpg "woman spending pexels-antoni-shkraba-6207699")
 
 **Spoiler alert: In today’s post, I’m going to encourage you to spend more money. 💰**

@@ -1,3 +1,4 @@
+# dear-globe-and-mail-where-are-the-female-experts
 ![Invest Like a Legend](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Invest-Like-a-Legend2-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Invest Like a Legend2")
 
 ![](attachments/Invest-Like-a-Legend2-225x300.jpg)Twenty minutes into the weekend edition of The Globe and Mail, I was seriously pissed off.

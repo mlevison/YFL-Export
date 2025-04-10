@@ -1,3 +1,4 @@
+# unexpressed-rage-and-a-financial-conundrum-what-vanessa-heard-at-starbucks
 ![Vanessa printed on coffee cup at Starbucks](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Vanessa-coffee-cup-at-Starbucks-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Vanessa coffee cup at Starbucks")
 
 Every once in a while, I get an email from a reader that makes me choke on my cup of tea. Today’s noteworthy moment came courtesy of Vanessa, an [award-winning travel blogger](http://www.turnipseedtravel.com/) who also happens to be a member of my team.![Vanessa written on coffee cup at Starbucks](attachments/Vanessa-coffee-cup-at-Starbucks-225x300.jpg) Vanessa overhead something at a coffee shop that she simply couldn’t ignore, especially since it was about a topic we had just discussed in my [Women’s Money Group](https://yflmainprod.wpengine.com/membership/).

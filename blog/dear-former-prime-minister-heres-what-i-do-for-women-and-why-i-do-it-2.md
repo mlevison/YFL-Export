@@ -1,3 +1,4 @@
+# dear-former-prime-minister-heres-what-i-do-for-women-and-why-i-do-it-2
 ![Prime Ministers place mat](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Prime-Ministers-place-mat-2-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "prime-ministers-place-mat-2")
 
 A long time ago, I bought a laminated place mat of the Prime Ministers of Canada, figuring that it might be more fun for my kids to pick up bits of ![prime-ministers-place-mat-2](attachments/Prime-Ministers-place-mat-2-300x211.jpg)Canadian history over breakfast than learning them by rote at school. My oldest daughter, nearly 13 now, ignored it until Justin Trudeau made it cool to be a Prime Minister. Then she noted that the place mat isn’t up to date – it ends at Jean Chretien – and she ignored it once again. My 9-year-old daughter Clarice, however, started to study the thing and quiz my husband, Mark, and me to see what we know.

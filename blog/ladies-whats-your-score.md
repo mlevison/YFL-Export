@@ -1,3 +1,4 @@
+# ladies-whats-your-score
 ![Credit score for blog](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Credit-score-for-blog-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Credit score for blog")
 
 Why is having a good credit – or Beacon – score such a big deal for women? It boils down to this: We tend to be more financially vulnerable than men.

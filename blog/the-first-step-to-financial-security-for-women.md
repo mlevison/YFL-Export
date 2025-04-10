@@ -1,3 +1,4 @@
+# the-first-step-to-financial-security-for-women
 ![number one  m](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/number-one-286987-m-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "number-one-286987-m")
 
 [![Starting point](attachments/Starting-point.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/05/Starting-point.jpg)So you’ve decided that it’s time to take the bull by the horns and sort out your financial situation. Or maybe you feel you’re doing fine but you realize that you don’t have have a plan in place to ensure that you’re fully protected in case life happens. You think, “Time to get that done” but where do you start?

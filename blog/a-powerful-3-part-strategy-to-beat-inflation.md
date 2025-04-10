@@ -1,3 +1,4 @@
+# a-powerful-3-part-strategy-to-beat-inflation
 ![3 part strategy pexels-pixabay-220051](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/3-part-strategy-pexels-pixabay-220051-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "3 part strategy pexels-pixabay-220051")
 
 **What do you do when the cost of almost all essential goods is rising faster than your income?**

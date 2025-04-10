@@ -1,3 +1,4 @@
+# do-you-have-what-it-takes-to-be-financially-solid
 ![Freedome](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Freedome-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "KONICA MINOLTA DIGITAL CAMERA")
 
 [![KONICA MINOLTA DIGITAL CAMERA](attachments/Freedome-300x225.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/11/Freedome.jpg)This morning I heard a story on the radio about a young couple who paid off their mortgage in five years. Their story was part of a piece on rising household debt in Canada and how that will have an impact on families when interest rates start to climb. I suspect the reporter’s angle was to illustrate that it is possible to pay off debt, even significant debt, in a short period of time. It got me thinking.

@@ -1,3 +1,4 @@
+# two-words-for-women-be-bold-a-rant
 ![Woman in black shirt holding white mug that says "Like a boss"](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Like-a-boss-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Like a boss")
 
 Warning: Bold language ahead. Proceed at own risk.![Woman in black shirt holding white mug that says "Like a boss"](attachments/Like-a-boss-300x257.jpg)

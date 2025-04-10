@@ -1,3 +1,4 @@
+# why-i-dont-believe-tenants-and-what-i-do-instead
 ![Truth](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Truth-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Truth")
 
 [![Truth](attachments/Truth-300x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/05/Truth.jpg)It doesn’t take much digging to find complaints about landlords: the guy’s a jerk, doesn’t ever repair anything, doesn’t respond to my calls, only cares about money and so on. Some landlords really do behave badly vis-a-vis their tenants and they certainly deserve our wrath.

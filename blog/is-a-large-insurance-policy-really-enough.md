@@ -1,3 +1,4 @@
+# is-a-large-insurance-policy-really-enough
 ![a toast](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/a-toast-1-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "a toast")
 
 One of the key messages in [my book](https://www.amazon.ca/Protect-Purse-Shared-Lessons-Women/dp/0995821801/ref=sr_1_1_twi_pap_2?ie=UTF8&qid=1496678821&sr=8-1&keywords=protect+your+purse) is that women need to familiarize themselves with their family’s finances. All of it – debts, investments, the works. ![](attachments/a-toast-1-300x281.jpg)Sure, we manage the bulk of the day-to-day stuff, but how conversant are we really with the investments that our spouse, or we, have?

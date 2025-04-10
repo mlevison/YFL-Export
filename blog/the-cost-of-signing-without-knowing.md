@@ -1,3 +1,4 @@
+# the-cost-of-signing-without-knowing
 You can never tell what lies beneath a person’s exterior. My friend Diana is a great example of that. I’ve known her for years and while I can’t quite remember how we connected, I can tell you that from the very beginning it felt like we’d known each other for years. Simply put, she is positive, engaging, grounded and very strong. To be around her is to experience laughter and animated conversation. You’d never guess what she’s been through.
 
 If anyone is equipped to deal with nonsense it’s Diana. As I discovered, Diana’s toughness is the result of trial by fire and long experience. When she heard that I was working on a book to help women, she told me to grab a glass of wine, sit down and listen; she had a story to tell.

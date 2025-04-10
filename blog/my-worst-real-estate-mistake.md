@@ -1,3 +1,4 @@
+# my-worst-real-estate-mistake
 ![angry dog  m](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/angry-dog-1060562-m-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "angry-dog-1060562-m")
 
 [![angry-dog-1060562-m](attachments/angry-dog-1060562-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/08/angry-dog-1060562-m.jpg)Recently I was reminded of the biggest lesson that I learned about investing in real estate. It was costly and very effective at ensuring that I would never make the same mistake again. The reminder came about when a friend asked a question about investing in student rentals. While the question about student rentals is an interesting one, there was an even bigger issue underlying the question and it’s so important that I’m going to address it today.

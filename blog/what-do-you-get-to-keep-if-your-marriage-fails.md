@@ -1,3 +1,4 @@
+# what-do-you-get-to-keep-if-your-marriage-fails
 ![broken heart pic](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/broken-heart-pic-1150866-639x529-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "broken-heart-pic-1150866-639×529")
 
 ![broken-heart-pic-1150866-639x529](attachments/broken-heart-pic-1150866-639x529-300x219.jpg)Just before Christmas, I wrote a blog post about the [questions people should ask before getting engaged](https://yflmainprod.wpengine.com/2016/12/four-financial-questions-to-consider-before-getting-engaged/). I wanted to explore how you can protect yourself from financial problems, particularly if the partnership fails. A friend of mine asked a great question in response to the post: “I’ve heard a lot of people say that in Canada, whatever you have before the marriage continues to be solely yours. Is this correct?”

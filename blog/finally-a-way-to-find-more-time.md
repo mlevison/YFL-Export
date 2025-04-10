@@ -1,3 +1,4 @@
+# finally-a-way-to-find-more-time
 ![Laura Vanderkam book](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Laura-Vanderkam-book-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Laura Vanderkam book")
 
 [![Laura Vanderkam book](attachments/Laura-Vanderkam-book-211x300.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2016/01/Laura-Vanderkam-book.jpg)“When are you going to write another blog post? I enjoy reading them. Have I missed your latest one?” My girlfriend hadn’t missed a thing. It’s been a couple of months since my last post.

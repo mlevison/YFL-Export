@@ -1,3 +1,4 @@
+# how-to-burn-your-mortgage-in-three-years
 ![Burn Your Mortgage book cover](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Burn-Your-Mortgage-book-cover-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.png "Burn Your Mortgage book cover")
 
 No, that’s not a typo – I do mean three years. And that’s precisely what Sean Cooper did: He bought a house in the Greater Toronto Area at the age of 27, and by the time he was 30, it was paid ![Burn Your Mortgage book cover](attachments/Burn-Your-Mortgage-book-cover-212x300.png)in full and he was lighting a match to the mortgage documents.

@@ -1,3 +1,4 @@
+# are-you-too-busy-to-learn-about-your-finances
 ![pink clock](attachments/pink-clock-1500019-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
 “My daughter needs [your book](https://www.amazon.ca/Protect-Your-Purse-Financial-Bankruptcies-ebook/dp/B071V8WPBW/ref=sr_1_1?ie=UTF8&qid=1501007407&sr=8-1&keywords=protect+your+purse) but I know she won’t read it.”

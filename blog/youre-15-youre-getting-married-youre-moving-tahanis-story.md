@@ -1,3 +1,4 @@
+# youre-15-youre-getting-married-youre-moving-tahanis-story
 ![index](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/index-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.png "index")
 
 ![index](attachments/index.png)Let me ask you a question: What would you do if you came home from school at 15 years of age only to be told by your family that you just got married and you were going to move to Canada with your new husband within a few months, without your family?[![clip_image001](http://yflmainprod.wpengine.com/wp-content/uploads/2013/05/clip_image001_thumb.gif "clip_image001")](attachments/clip_image001.gif)

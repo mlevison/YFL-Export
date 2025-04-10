@@ -1,3 +1,4 @@
+# the-first-steps-to-take-control-of-your-finances
 ![woman driving jenny-ueberberg-jI6rCVv9IFk-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/woman-driving-jenny-ueberberg-jI6rCVv9IFk-unsplash-scaled-qdc6cl4afvd0e7u8gsga3w7nntk4ogpm8ive48i360.jpg "woman driving jenny-ueberberg-jI6rCVv9IFk-unsplash")
 
 Earlier this week, I gave a class on the steps required, in order, to take control of your finances and get you to a place where you have freedom and choice.

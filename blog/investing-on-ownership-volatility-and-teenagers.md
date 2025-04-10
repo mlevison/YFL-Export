@@ -1,3 +1,4 @@
+# investing-on-ownership-volatility-and-teenagers
 ![Risk management](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Risk-iStock-495540916-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Risk management")
 
 Welcome to Part Two of Investing’s Two Basic Options.

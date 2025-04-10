@@ -1,3 +1,4 @@
+# how-to-talk-to-people-who-are-grieving
 ![desolation](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/desolation-1308070-639x852-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "desolation-1308070-639×852")
 
 ![desolation-1308070-639x852](attachments/desolation-1308070-639x852-223x300.jpg)A reader emailed me the following question, “I was thinking of you last week wondering if you have a blog post about how to talk to someone who is grieving? I have a few friends in different situations and people just don’t seem to know how to talk to them anymore.”

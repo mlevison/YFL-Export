@@ -1,3 +1,4 @@
+# why-you-should-stay-away-from-collateral-mortgages
 ![handcuffs](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/handcuffs-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "handcuffs")
 
 Let’s cut to the chase: I’m not a big fan of collateral mortgages. They are mostly rotten for consumers looking for a first mortgage, but they’re downright dangerous to second mortgage investors.

@@ -1,3 +1,4 @@
+# allowing-yourself-to-learn-about-investing
 ![Head shot of wide-eyed deer in front of green bush](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Deer-haley-phelps-60828-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Deer haley-phelps-60828-unsplash")
 
 They looked like deer in headlights.![Head shot of wide-eyed deer in front of green bush](attachments/Deer-haley-phelps-60828-unsplash-300x237.jpg)

@@ -1,3 +1,4 @@
+# a-tale-of-opposites-the-difference-preparation-makes
 I have recently come across two stories that provide an excellent example of contrasting outcomes. In both cases there was a sudden death yet the consequences for the families left behind couldn’t have been more disparate. It all hinged on preparation.
 
 ## Consider Case #1:

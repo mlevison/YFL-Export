@@ -1,3 +1,4 @@
+# from-whom-should-you-take-advice
 ![Caution](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Caution-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Caution")
 
 [![Caution](attachments/Caution-300x118.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/03/Caution.jpg)You’ll hear this at parties, in coffee shops and pretty much anywhere that people hook up to chat. Someone talks about a problem, mentions their conundrum and then someone else chimes in with something like this: “You know what you should do?” Or, “If I were you I would….”

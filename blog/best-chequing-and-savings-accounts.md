@@ -1,3 +1,4 @@
+# best-chequing-and-savings-accounts
 I’ve received a lot of questions lately about the best chequing and savings accounts in Canada.
 
 The questions are timely because I just did an analysis of the market for my daughters, both of whom are setting up their own systems and they’re looking to optimize their dollars.

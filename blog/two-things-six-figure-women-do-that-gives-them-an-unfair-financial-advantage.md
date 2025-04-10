@@ -1,3 +1,4 @@
+# two-things-six-figure-women-do-that-gives-them-an-unfair-financial-advantage
 ![inukshuk jordan-ostapiuk-D1a84RUn4Ps-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/inukshuk-jordan-ostapiuk-D1a84RUn4Ps-unsplash-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "inukshuk jordan-ostapiuk-D1a84RUn4Ps-unsplash")
 
 What do high six- and seven-figure women know that women who aren’t earning up to their potential don’t?

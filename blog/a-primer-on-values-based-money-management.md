@@ -1,3 +1,4 @@
+# a-primer-on-values-based-money-management
 ![values shutterstock_1303124506 smaller](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/values-shutterstock_1303124506-smaller-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "values shutterstock_1303124506 smaller")
 
 What system do you use to manage your money? Did you get it from a book? Trial and error?

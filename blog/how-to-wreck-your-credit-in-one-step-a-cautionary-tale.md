@@ -1,3 +1,4 @@
+# how-to-wreck-your-credit-in-one-step-a-cautionary-tale
 ![Windshield crack](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Windshield-crack-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "SANYO DIGITAL CAMERA")
 
 ![](attachments/Windshield-crack-244x300.jpg)

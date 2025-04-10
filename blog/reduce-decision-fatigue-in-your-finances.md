@@ -1,3 +1,4 @@
+# reduce-decision-fatigue-in-your-finances
 ![decision fatigue pexels-nataliya-vaitkevich-6837777](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/decision-fatigue-pexels-nataliya-vaitkevich-6837777-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "decision fatigue pexels-nataliya-vaitkevich-6837777")
 
 Last week, I hit a metaphorical wall. Unbeknownst to me at the time, my body was fighting an infection while work required long hours, including weekends. Cue up bone-crushing fatigue. 😴

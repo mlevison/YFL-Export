@@ -1,3 +1,4 @@
+# a-comparison-of-dave-ramseys-7-baby-steps-to-a-values-based-planning-approach
 ![values based planning](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/baby-steps-fernando-pelaez-cubas-nbt_ZlRZB8I-unsplash-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "baby steps fernando-pelaez-cubas-nbt_ZlRZB8I-unsplash")
 
 “Is there a difference between your values based planning approach and Dave Ramsey’s program?” a reader asked.

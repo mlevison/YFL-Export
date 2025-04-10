@@ -1,3 +1,4 @@
+# collateral-mortgages-part-2-bankers-speak
 ![Bank](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Bank-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Bank")
 
 A few weeks ago **[I published an article](https://yflmainprod.wpengine.com/2015/02/why-you-should-stay-away-from-collateral-mortgages/)** on my concerns regarding collateral mortgages. I outlined why I think they are problematic for many consumers and how they are risky for second mortgage investors.

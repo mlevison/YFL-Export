@@ -1,3 +1,4 @@
+# claims-about-rent-to-own-what-can-you-believe
 ![break in the wall](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/break-in-the-wall-1185086-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Processed by: Helicon Filter;  MINOLTA DIGITAL CAMERA")
 
 It looks like the hype about Rent to Own is back.

@@ -1,3 +1,4 @@
+# why-i-stopped-using-tangerine-products-and-prefer-the-simplii-pc-mastercard-combo
 ![home office djurdjica-boskovic-G8_A4ZWxE3E-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/home-office-djurdjica-boskovic-G8_A4ZWxE3E-unsplash-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "home office djurdjica-boskovic-G8_A4ZWxE3E-unsplash")
 
 Last year, for my **[Women’s Money Group](https://yourfinanciallaunchpad.com/womens-money-group/),** I offered a workshop on the best credit cards available at that time. I created a spreadsheet of more than a dozen options and did a deep dive on their respective offerings, including the value of their points systems.

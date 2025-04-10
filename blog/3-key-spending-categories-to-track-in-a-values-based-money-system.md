@@ -1,3 +1,4 @@
+# 3-key-spending-categories-to-track-in-a-values-based-money-system
 ![values based money system pexels-kindel-media-7054724](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/values-based-money-system-pexels-kindel-media-7054724-scaled-e1617818719167-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "values based money system pexels-kindel-media-7054724")
 
 **What job do you want your money to do for you?**

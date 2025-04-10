@@ -1,3 +1,4 @@
+# want-to-be-debt-free-no-you-dont
 ![journal jess-bailey-y7GlIdTUOvo-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/journal-jess-bailey-y7GlIdTUOvo-unsplash-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "journal jess-bailey-y7GlIdTUOvo-unsplash")
 
 I know what you’re thinking: “WHHHHHAAAAaaaat? Who wouldn’t want to be debt-free?”

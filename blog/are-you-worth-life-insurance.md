@@ -1,3 +1,4 @@
+# are-you-worth-life-insurance
 ![Life insurance](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Life-insurance-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "Life insurance")
 
 I know, it’s a strange way to phrase a question. Shouldn’t I have asked, “Is it worth buying life insurance for yourself?” That would be grammatical – and miss my point.![Life insurance](attachments/Life-insurance-229x300.jpg)

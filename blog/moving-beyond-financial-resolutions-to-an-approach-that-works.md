@@ -1,3 +1,4 @@
+# moving-beyond-financial-resolutions-to-an-approach-that-works
 ![Resolutions tim-mossholder-_iSW2i7IboA-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Resolutions-tim-mossholder-_iSW2i7IboA-unsplash-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "Resolutions tim-mossholder-_iSW2i7IboA-unsplash")
 
 Have you made any financial resolutions for 2021 yet?

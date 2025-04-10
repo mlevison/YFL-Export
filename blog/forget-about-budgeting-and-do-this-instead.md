@@ -1,3 +1,4 @@
+# forget-about-budgeting-and-do-this-instead
 ![budget](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/budget-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "budget")
 
 I’ve just finished reading two books by people who are considered to be experts in the field of personal finance. They’re both big on budgets. In fact, according to them, having a budget is key to developing financial strength. You’ve got to[![budget](attachments/budget.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/06/budget.jpg) know your numbers and stick to them. Plot them all out and check in regularly. Track your expenditures. One even goes so far as to suggest that you list every dime you spend as you spend it. Whatever you do don’t stray from the budget.

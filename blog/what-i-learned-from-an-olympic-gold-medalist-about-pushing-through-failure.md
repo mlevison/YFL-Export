@@ -1,3 +1,4 @@
+# what-i-learned-from-an-olympic-gold-medalist-about-pushing-through-failure
 ![Mark McKoy](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Mark-McKoy-qdc6csmzyjnaz3jb8vpanubcewj2e1jgxk39yg6xs8.jpg "Mark McKoy")
 
 Can you think of a moment in your life when you worked very hard to achieve a goal and you failed? Or you tried to accomplish a task and you kept running up against one stumbling block after another?

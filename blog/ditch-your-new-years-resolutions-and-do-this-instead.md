@@ -1,3 +1,4 @@
+# ditch-your-new-years-resolutions-and-do-this-instead
 ![sydney nye](attachments/sydney-nye-2007-5-1223149-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg)
 
 ![](attachments/sydney-nye-2007-5-1223149-300x264.jpg)How are your New Year’s resolutions going? Have you given up on any of them yet? Some of them? The whole lot? Did you fail by the end of the first week of January? If so, consider yourself in good company.

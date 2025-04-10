@@ -1,3 +1,4 @@
+# go-slow-to-go-fast
 This past summer I hit a wall. Both of my businesses were busy, my blog interviews were going well, the posts were generating interesting feedback, there were a myriad of extra-curricular activities and my kids were finishing their respective school years. It was all good, and it was all too much. Like many women I know, I found myself staring at far too many balls in the air wishing for a break from all of the responsibilities. I envied my kids their unalloyed joy at the prospect of a long, glorious summer. So much free time and so many fun things to do.
 
 ## The problem

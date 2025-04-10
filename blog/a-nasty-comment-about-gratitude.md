@@ -1,3 +1,4 @@
+# a-nasty-comment-about-gratitude
 ![hands thumbsdown  m](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/hands-thumbsdown-238129-m-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "hands-thumbsdown-238129-m")
 
 Joe really really didn’t like my post about gratitude and he let me know it in no uncertain terms.[![hands-thumbsdown-238129-m](attachments/hands-thumbsdown-238129-m.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/hands-thumbsdown-238129-m.jpg)

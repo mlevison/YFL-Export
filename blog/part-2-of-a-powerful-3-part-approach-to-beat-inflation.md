@@ -1,3 +1,4 @@
+# part-2-of-a-powerful-3-part-approach-to-beat-inflation
 ![Young businesswoman going to make handshake with a businessman -greeting, dealing, merger and acquisition concepts](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-666823506-scaled-qdc6cl4afvd0e7u8gsga3w7nntk4ogpm8ive48i360.jpg "Young businesswoman going to make handshake with a businessman")
 
 Yesterday, I shared [Part 1 of my 3-Part Approach to Beat Inflation](https://yourfinanciallaunchpad.com/a-powerful-3-part-strategy-to-beat-inflation/): Short-term strategies.

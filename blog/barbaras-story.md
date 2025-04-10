@@ -1,3 +1,4 @@
+# barbaras-story
 Some things in life are supposed to be guaranteed. If you take care of your body, you expect to be healthy. You do all the right things, make the right choices and reasonably expect to live a long, healthy life. Shortly after her 30th birthday, Barbara discovered that life offers no such guarantees.
 
 Barbara met her husband Edward in her early 20s. He was the picture of health: a former professional athlete who exercised regularly, never drank or smoked, and made wise food choices. From the very beginning they had a strong connection. They dated for a couple of years, were engaged for a few more then they were married. At the start of their engagement they bought a house together. Barbara joked that they would have twins, a boy and a girl, to complete their family and get it all done at once.

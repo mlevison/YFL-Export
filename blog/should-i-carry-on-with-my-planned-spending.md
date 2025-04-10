@@ -1,3 +1,4 @@
+# should-i-carry-on-with-my-planned-spending
 ![Piggy Bank With Eyes Glass And Blackboard](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/save-or-spend-iStock-915463100-for-blog-post-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "Piggy Bank With Eyes Glass And Blackboard")
 
 #### Are you wondering where, or whether, to spend your dollars given the economic uncertainty at the moment?

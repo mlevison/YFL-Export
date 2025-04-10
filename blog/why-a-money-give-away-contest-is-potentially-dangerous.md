@@ -1,3 +1,4 @@
+# why-a-money-give-away-contest-is-potentially-dangerous
 ![radio station](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/radio-station-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "radio station")
 
 ![radio-of-car-1467859-640x480](attachments/radio-of-car-1467859-640x480-300x209.jpg)Within two seconds of backing out of the driveway, my twelve year old asked, “Can you please turn on the radio?” The funny thing is that when no music is playing, my daughter usually clams up but as soon as the tunes start she pulls out her chatty Cathy routine. And so it was on this day the moment I turned on the radio to a local, Top 40 Hits music station. Within minutes she heard their ad about a money give-away and that got her all excited.

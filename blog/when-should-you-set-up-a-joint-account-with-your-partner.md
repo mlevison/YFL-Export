@@ -1,3 +1,4 @@
+# when-should-you-set-up-a-joint-account-with-your-partner
 ![cheque](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/cheque-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "cheque")
 
 A reader sent me the following question: “What are the indicators that it is time to open a joint ![](attachments/cheque-300x221.jpg)account, when couples have been dating for a while and things are getting serious? How do you start sharing accounts and for what? What is the exit strategy if something goes south?”

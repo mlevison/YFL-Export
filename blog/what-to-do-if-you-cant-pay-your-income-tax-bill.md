@@ -1,3 +1,4 @@
+# what-to-do-if-you-cant-pay-your-income-tax-bill
 ![tax return](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/tax-return-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "tax return")
 
 Ahhh, tax time, everyone’s favorite time of year. April for most adults in Canada and the US means that it’s time to pay personal income tax. For most accountants, on the other hand, it means that they haven’t ![tax return](attachments/tax-return-300x225.jpg)seen their families in a couple of months as they work to get all the returns completed by the deadline. Good times.

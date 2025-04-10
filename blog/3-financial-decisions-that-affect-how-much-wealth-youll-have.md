@@ -1,3 +1,4 @@
+# 3-financial-decisions-that-affect-how-much-wealth-youll-have
 I’ve made **3 financial decisions** in my life that have literally **added hundreds of thousands of dollars** to my net worth.
 
 When you get these decisions wrong, they can do a lot of damage to your financial future.

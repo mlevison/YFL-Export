@@ -1,3 +1,4 @@
+# inflation-did-mr-money-mustache-get-it-right
 ![inflation pexels-karolina-grabowska-7680684](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/inflation-pexels-karolina-grabowska-7680684-scaled-qdc6cl4afvd0e7u8gsga3w7nntk4ogpm8ive48i360.jpg "inflation pexels-karolina-grabowska-7680684")
 
 A couple days ago, I asked my community of women about the impact of inflation on their finances.

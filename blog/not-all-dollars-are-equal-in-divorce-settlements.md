@@ -1,3 +1,4 @@
+# not-all-dollars-are-equal-in-divorce-settlements
 ![certificate of divorce](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Certificate-of-divorce-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Certificate of divorce")
 
 ![certificate of divorce](attachments/Certificate-of-divorce-300x200.jpg)Tim and Connie decided to call it quits after more than a decade of marriage. There wasn’t a big crisis; it’s just that they grew apart. While one of them wasn’t entirely happy with the decision, they both came to accept that separation, and ultimately divorce, was inevitable.

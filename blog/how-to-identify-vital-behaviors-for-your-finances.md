@@ -1,3 +1,4 @@
+# how-to-identify-vital-behaviors-for-your-finances
 ![how to identify vital behaviors](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/how-to-identify-vital-behaviors-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.png "how to identify vital behaviors")
 
 How do you identify the behaviors that have the biggest impact on your results?

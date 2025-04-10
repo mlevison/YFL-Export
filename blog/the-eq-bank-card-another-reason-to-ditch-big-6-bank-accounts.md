@@ -1,3 +1,4 @@
+# the-eq-bank-card-another-reason-to-ditch-big-6-bank-accounts
 ![EQ Bank Card](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/EQ-Bank-Card-qdc6ck6g91bq2lvlma1njeg72forgrlvwe7wmyjhc8.png "EQ Bank Card")
 
 For years, I’ve been recommending that you **move your accounts** – chequing and savings – **out of the Big 6** banks in Canada.

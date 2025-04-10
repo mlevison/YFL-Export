@@ -1,3 +1,4 @@
+# do-i-need-insurance-three-types-of-insurance-you-should-ignore
 ![Insurance pexels-kindel-media-7688374 for blog post](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Insurance-pexels-kindel-media-7688374-for-blog-post-qmfewv2lt2o1n4ixpyunj60rx3a04ketm008mwsmfc.png "Insurance pexels-kindel-media-7688374 for blog post")
 
 Several years ago, when I ran a real estate investment company, clients would ask me, “Do I need insurance?”

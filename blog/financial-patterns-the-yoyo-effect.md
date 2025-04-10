@@ -1,3 +1,4 @@
+# financial-patterns-the-yoyo-effect
 ![financial patterns pexels-sanndy-anghan-6785289](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/financial-patterns-pexels-sanndy-anghan-6785289-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "financial patterns pexels-sanndy-anghan-6785289")
 
 **Financial patterns can be insidious.**

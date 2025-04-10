@@ -1,3 +1,4 @@
+# three-things-a-values-based-money-system-does-for-you-that-budgeting-does-not
 ![values post sean-stratton-ObpCE_X3j6U-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/values-post-sean-stratton-ObpCE_X3j6U-unsplash-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "values post sean-stratton-ObpCE_X3j6U-unsplash")
 
 If your money system is running like a well-oiled machine and you’re on track to hit all your important goals, stop reading this and carry on with your day.

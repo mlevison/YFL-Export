@@ -1,3 +1,4 @@
+# collateral-mortgages-part-3-what-the-lawyers-said
 ![Legal](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Legal-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Legal")
 
 This is the third, and final, installment in my series on collateral mortgages. My intention with this series is to provide consumers with as much information as possible so that they can make informed decisions when the time comes to obtain a mortgage or, in the case of second mortgage investors, lend money as part of a real estate investment.

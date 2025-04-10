@@ -1,3 +1,4 @@
+# investing-boils-down-to-two-basic-options
 ![Jar of coins with plant](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Pennies-jar-with-plant-for-blog-post-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Jar of coins with plant")
 
 When I stepped out of the house at 6 am today, I gasped. It was 13 degrees!! (In American-speak, that’s 55 degrees.) The day before, it was 22 headed to 30 degrees (or 86). Welcome to the dying days of summer. (Insert ![](attachments/Pennies-jar-with-plant-for-blog-post-300x203.jpg)pained expression.) That’s the bad news.

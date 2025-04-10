@@ -1,3 +1,4 @@
+# should-we-ask-kids-to-donate-money
 ![money jars](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/money-jars-qdc6cuioc7pvmbgkxwijstu9lo9stfqxlte8x045fs.jpg "money jars")
 
 [![children hands](attachments/children-hands-300x216.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/11/children-hands.jpg)As so often happens, I had a thought-provoking conversation with my friend [Bona](https://yflmainprod.wpengine.com/2012/05/my-story-part-i/) about kids and allowances. Bona had just returned from a workshop with a parenting expert and after sharing some of the tips, which all sounded quite good to me, she issued a caveat.

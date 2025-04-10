@@ -1,3 +1,4 @@
+# how-to-stop-money-from-sabotaging-your-life
 ![Marilynn smiling with array of tools](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Marilynn-smiling-with-array-of-tools-qdc6csmzyjnaz3jb8vpanubcewj2e1jgxk39yg6xs8.jpg "Marilynn smiling with array of tools")
 
 ![Marilynn driving drill into her ear](attachments/Marilynn-driving-drill-into-her-ear-e1447953191230-225x300.jpg)Roughly one year ago my friend Sandra and I had a bright idea: Let’s create a private forum where women can talk about money. Lord knows we all need to learn more about how it works and since we sometimes feel like morons discussing it around men, why not create a space for women only? It would be a safe, supportive environment where women can ask questions, share concerns and help each other out on any topic related to money and financial literacy.

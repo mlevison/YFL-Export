@@ -1,3 +1,4 @@
+# two-important-steps-to-minimize-financial-worries
 ![by the numbers](attachments/by-the-numbers-1254356-1279x856-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
 ![](attachments/by-the-numbers-1254356-1279x856-300x201.jpg)\*Janet is a disciplined person. She earns a good salary and is careful not to spend too much. She has some debt, and while it’s not an excessive amount, it is enough to bug her. On top of that, she’s not sure if she’s going to have enough for the long run. Every time she spends money, she wonders, “Can I really afford this? Should I be buying this?

@@ -1,3 +1,4 @@
+# a-hack-to-pay-off-debt-faster
 ![get out of debt shutterstock_1277441878](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/get-out-of-debt-shutterstock_1277441878-scaled-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "get out of debt shutterstock_1277441878")
 
 Several people who recently joined my mailing list emailed me to say that dealing with debt is their number one issue. If you’re in the same boat, this post if for you.

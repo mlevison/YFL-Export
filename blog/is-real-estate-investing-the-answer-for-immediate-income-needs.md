@@ -1,3 +1,4 @@
+# is-real-estate-investing-the-answer-for-immediate-income-needs
 ![Divorce](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Divorce-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "Divorce")
 
 [![Divorce](attachments/Divorce-300x168.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2015/02/Divorce.jpg)Someone (let’s call her Rachel) reached out to me to ask the following question: What’s the fastest way to increase my income in order to ensure that I can qualify for the mortgage to buy out my ex-husband’s share of the house when we finalize our divorce? Is real estate investing a good option?

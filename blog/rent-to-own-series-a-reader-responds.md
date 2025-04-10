@@ -1,3 +1,4 @@
+# rent-to-own-series-a-reader-responds
 ![agreement survey scale](attachments/agreement-survey-scale-3-1236576-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
 Shortly after I published [the first article](https://yflmainprod.wpengine.com/2017/06/claims-about-rent-to-own-what-can-you-believe/) in my series on Rent to Own, a reader responded with a number of comments. There are some good questions embedded in this person’s response, ![](attachments/agreement-survey-scale-3-1236576-300x200.jpg)so I have copied the comments in full (as received), in blue, with my responses in black. Please feel free to join in the conversation and add your own comments or questions.

@@ -1,3 +1,4 @@
+# the-myth-of-more-money
 ![More money](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/More-money-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "More money")
 
 [![More money](attachments/More-money.jpg)](http://yflmainprod.wpengine.com/wp-content/uploads/2014/10/More-money.jpg)Just imagine how nice it would be if someone sent you a gift of $20,000. Wouldn’t that be great? Even better, what if they magically increased your salary by $10,000 every year for the rest of your life. Wouldn’t that make a huge difference?

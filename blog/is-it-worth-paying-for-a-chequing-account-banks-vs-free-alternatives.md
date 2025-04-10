@@ -1,3 +1,4 @@
+# is-it-worth-paying-for-a-chequing-account-banks-vs-free-alternatives
 ![CIBC ad](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/CIBC-ad-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "CIBC ad")
 
 Take a look at the image above, taken from an ad for a chequing account.

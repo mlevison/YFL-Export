@@ -1,3 +1,4 @@
+# the-best-way-to-beat-inflation-part-3
 ![inflation pexels-andrea-piacquadio-3758105](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/inflation-pexels-andrea-piacquadio-3758105-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "inflation pexels-andrea-piacquadio-3758105")
 
 For the past week, I’ve been pulling apart the issue of inflation (i.e. rising costs) and the impact it has on women’s finances.

@@ -1,3 +1,4 @@
+# should-we-lend-money-to-friends-and-family
 ![IOUs](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/IOUs-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.jpg "IOUs")
 
 I received a message from a reader with the following request:![IOUs](attachments/IOUs-300x239.jpg)

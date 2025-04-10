@@ -1,3 +1,4 @@
+# what-does-it-take-to-solve-a-financial-problem
 ![old decorative key](attachments/old-decorative-key-1414283-639x426-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg)
 
 ![](attachments/old-decorative-key-1414283-639x426.jpg)If I gave you $300,000, would that be the key to solving your financial challenges?

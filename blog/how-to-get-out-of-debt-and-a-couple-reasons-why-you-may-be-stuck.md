@@ -1,3 +1,4 @@
+# how-to-get-out-of-debt-and-a-couple-reasons-why-you-may-be-stuck
 ![Debt alice-pasqual-258250-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Debt-alice-pasqual-258250-unsplash-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Debt alice-pasqual-258250-unsplash")
 
 ![](attachments/Debt-alice-pasqual-258250-unsplash-1024x364.jpg)Why is it that some people are able to get out of debt – even when they owe a heap of cash – while others struggle in a perpetual loop of growing credit card, line of credit, student loan and mortgage balances?

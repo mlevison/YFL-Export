@@ -1,3 +1,4 @@
+# automatic-vs-automated-finances-a-distinction-that-makes-a-big-difference
 ![Pink piggy banks on grey conveyor.](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-487214840-automatic-finances-for-blog-post-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg "Pink piggy banks on grey conveyor.")
 
 Remember [Mia](/2019/10/a-tale-of-loss-aversion-and-sunk-costs-mia-and-her-cappuccino-maker/), one of my **[Women’s Money Group](/womens-money-group/)** members? She has appeared in my newsletter over the last few months courtesy of her regular emails to me with interesting comments about financial management, investing, habits, and mindset challenges. Today, she’s back with more thought-provoking material. Earlier, **[I issued a challenge](/2019/10/financial-goals-whats-job-1-for-your-money-in-the-next-three-months/)** to my mailing list about their financial goals. Here’s what Mia had to say:

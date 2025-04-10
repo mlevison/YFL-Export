@@ -1,3 +1,4 @@
+# a-shout-out-to-four-inspiring-women
 ![gratitude gabrielle-henderson-M4lve6jR26E-unsplash](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/gratitude-gabrielle-henderson-M4lve6jR26E-unsplash-scaled-qdc6cmzytjfl1fri5t9j8vqkulav3ux2ws6d2sfatk.jpg "gratitude gabrielle-henderson-M4lve6jR26E-unsplash")
 
 Today, I want to say thank you to four women in this community whose engagement has supported me and kept me moving forward as I work to close the wealth gap between men and women.

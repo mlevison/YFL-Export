@@ -1,3 +1,4 @@
+# the-next-step-to-clean-up-clarify
 ![January 7 2022](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/January-7-2022-e1641573876909-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.png "January 7 2022")
 
 Have you identified the first spot you want to tackle in your mission to declutter and make space for the good in 2022?

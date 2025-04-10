@@ -1,3 +1,4 @@
+# were-coming-live-to-your-home-womens-money-group-news
 ![3D rendering of an compass with the word core values](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/core-values-2-iStock-685774898-qdc6covn77i5onoruu2sdv9i1d1lj94jl1hc1ccih4.jpg "core values")
 
 **I’ve got some big news about the Women’s Money Group: We’re coming live to your home!**  

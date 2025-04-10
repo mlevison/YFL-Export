@@ -1,3 +1,4 @@
+# whats-your-financial-game-plan-for-2020
 ![](attachments/For-blog-post-Financial-Game-Plan-iStock-624490712-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.jpg)
 
 I’m back to talk to you about what it takes to crush your 2020 goals. I mean that literally – the bit about talking.

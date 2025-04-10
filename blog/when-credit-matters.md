@@ -1,3 +1,4 @@
+# when-credit-matters
 ![cddcedbf](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/64216c3d24d7c3e2d124502b85f01344-qdc6cqrbkvkqbvm1juw1iusf84sbync09asazw9q4o.png "64216c3d24d7c3e2d124502b85f01344")
 
 ![64216c3d24d7c3e2d124502b85f01344](attachments/64216c3d24d7c3e2d124502b85f01344.png)I recently wrote a blog post for my business entitled [Women: What’s your score?](http://blueribbonrto.com/women-whats-your-score/) It’s a discussion of the importance of Credit Scores (also known as Beacon scores in Canada) and why women in particular need to pay attention to them. Then one of life’s interesting coincidences occurred: I interviewed a woman whom I’ll call Deb who ran up against the very issue I had just written about following the shocking loss of her husband. Here is her story and her important advice for all of us.

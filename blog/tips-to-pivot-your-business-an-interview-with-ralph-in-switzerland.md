@@ -1,3 +1,4 @@
+# tips-to-pivot-your-business-an-interview-with-ralph-in-switzerland
 ![Photo-for-interview-blog-post](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Photo-for-interview-blog-post-qdc6cnxt0dgvd1q50bo5tdi1fz68bk0t8wtuk2dwnc.png "Photo-for-interview-blog-post")
 
 Imagine that after working for a large company for years, you decide to launch your own communication company. Everything is going very well except for one factor – the timing. Just as you’re ready to turn on the jets to full speed, Covid-19 hits and the world shuts down.

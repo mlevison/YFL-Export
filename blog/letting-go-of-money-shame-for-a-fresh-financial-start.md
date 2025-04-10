@@ -1,3 +1,4 @@
+# letting-go-of-money-shame-for-a-fresh-financial-start
 ![spring flowers pexels-vural-yavas-1076607](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/spring-flowers-pexels-vural-yavas-1076607-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "spring flowers pexels-vural-yavas-1076607")
 
 We need to talk.

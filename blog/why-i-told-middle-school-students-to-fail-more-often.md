@@ -1,3 +1,4 @@
+# why-i-told-middle-school-students-to-fail-more-often
 ![girl in white holding her hands up](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/girl-in-white-holding-her-hands-up-1306644-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "girl-in-white-holding-her-hands-up-1306644")
 
 My daughter’s middle school recently invited me to address the students during their Me to We Day event. I was asked to speak on![](attachments/girl-in-white-holding-her-hands-up-1306644-201x300.jpg) overcoming hardship and financial literacy. This is what I told them:

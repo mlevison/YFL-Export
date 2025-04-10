@@ -1,3 +1,4 @@
+# financial-goals-whats-job-1-for-your-money-in-the-next-three-months
 ![Top Priority](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/Priorities-iStock-492612002-smaller-version-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "Top Priority")
 
 In early August, I asked a question of my mailing list, and on **[my Facebook page:](https://www.facebook.com/YourFinancialLaunchpad/)** What are you up to this summer? I received entertaining emails about hiking trips, travel to Europe, sailing lessons, cups of tea consumed on the deck at the cottage, and other special moments.

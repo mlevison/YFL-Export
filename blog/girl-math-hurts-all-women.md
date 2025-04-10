@@ -1,3 +1,4 @@
+# girl-math-hurts-all-women
 ![financial mistakes pexels-george-becker-374918](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/financial-mistakes-pexels-george-becker-374918-scaled-qdh55tzwr5gswndogtpziz7j7b6u5r4u9xq369xkso.jpg "financial mistakes pexels-george-becker-374918")
 
 **Have you heard about** ***Girl Math?***

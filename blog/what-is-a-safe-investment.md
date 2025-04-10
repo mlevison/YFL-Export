@@ -1,3 +1,4 @@
+# what-is-a-safe-investment
 ![safe investment pexels-cottonbro-3943716](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/safe-investment-pexels-cottonbro-3943716-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "safe investment pexels-cottonbro-3943716")
 
 What does a safe investment mean to you? What makes it safe?

@@ -1,3 +1,4 @@
+# where-does-your-money-trail-lead
 ![coin question mark](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/coin-question-mark-qdc6crp5rpm0nhkoedao3cjvtinp6cfqlffsh68byg.jpg "coin-question-mark.jpg")
 
 [![coin question mark](http://yflmainprod.wpengine.com/wp-content/uploads/2013/03/coin-question-mark_thumb.jpg "coin question mark")](attachments/coin-question-mark.jpg)I recently shot a video for a company that asked for my Top 5 Tips for Women and I want to share some of that content with you today. I have many suggestions when it comes to helping women protect themselves and ensure a financially secure future. Today I’m going to share the #1 Tip that I think will make a big difference in your life. This is the single most important thing that I have learned through the process of becoming a widow, surviving a financial crisis and rebuilding my life.

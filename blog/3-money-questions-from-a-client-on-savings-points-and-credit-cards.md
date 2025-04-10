@@ -1,3 +1,4 @@
+# 3-money-questions-from-a-client-on-savings-points-and-credit-cards
 ![questions pexels-alex-green-5699480](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/questions-pexels-alex-green-5699480-scaled-qdc6cm24mpeaptsvbauwodz497fhw5tcknivligozs.jpg "questions pexels-alex-green-5699480")
 
 One of my Money-Smart Students program graduates reached out with some great questions. I thought I’d share my responses with you since I’ve had several people ask me variations of these questions.

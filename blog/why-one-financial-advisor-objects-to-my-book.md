@@ -1,3 +1,4 @@
+# why-one-financial-advisor-objects-to-my-book
 ![communicate](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/communicate-5-1241862-640x720-qdc6cpthe1jg09nepcheyd0ymqwyqy89x64timb4aw.jpg "communicate-5-1241862-640×720")
 
 ![communicate-5-1241862-640x720](attachments/communicate-5-1241862-640x720-233x300.jpg)In my upcoming book, I relay a story about a highly educated and accomplished woman who relies entirely on her husband and their financial advisor to make choices about her investments. I suggest that this might not be the best approach for her given that her husband has no more experience than she has with investments, and, also, given the track record that a majority of financial advisors have.

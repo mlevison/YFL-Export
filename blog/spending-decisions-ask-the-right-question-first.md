@@ -1,3 +1,4 @@
+# spending-decisions-ask-the-right-question-first
 ![Five bulbs on a blue background and one of them is glowing.](https://yourfinanciallaunchpad.com/wp-content/uploads/elementor/thumbs/iStock-533342616-qdc6d3x28k2quf2xf0kthrgvjizgyes8z3x3prq7pk.jpg "Five bulbs and one of them is glowing.")
 
 How do you make your spending decisions?
